@@ -7,3 +7,10 @@ Scraper/*.log
 Scraper/*.tmp
 Scraper/.*.lock
 Scraper/.x_cookies.json
+**/media/*
+*.mp4
+*.mov
+*.m4v
+*.webm
+*.mkv
+*.avi

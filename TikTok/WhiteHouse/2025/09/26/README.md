@@ -1,0 +1,31 @@
+# TikTok / WhiteHouse / 2025-09-26
+
+- Posts: 9
+
+- [22:22 UTC - President Trump watches Bryson DeChambeau tee off at the Ryder Cup! ⛳️🇺🇸](7554526560422874423/)
+  - Source: https://www.tiktok.com/@WhiteHouse/video/7554526560422874423
+  - President Trump watches Bryson DeChambeau tee off at the Ryder Cup! ⛳️🇺🇸
+- [20:17 UTC - Radical left rhetoric against ICE](7554494422574976269/)
+  - Source: https://www.tiktok.com/@WhiteHouse/video/7554494422574976269
+  - Radical left rhetoric against ICE
+- [19:00 UTC - The people’s President](7554474515686771982/)
+  - Source: https://www.tiktok.com/@WhiteHouse/video/7554474515686771982
+  - The people’s President
+- [17:14 UTC - USA! USA!](7554447543304719671/)
+  - Source: https://www.tiktok.com/@WhiteHouse/video/7554447543304719671
+  - USA! USA!
+- [16:39 UTC - Catching flights, not feelings](7554438392331701518/)
+  - Source: https://www.tiktok.com/@WhiteHouse/video/7554438392331701518
+  - Catching flights, not feelings
+- [16:10 UTC - 🇺🇸🤝🇹🇷](7554430831851244814/)
+  - Source: https://www.tiktok.com/@WhiteHouse/video/7554430831851244814
+  - 🇺🇸🤝🇹🇷
+- [15:12 UTC - TikTok post 7554416083638160654](7554416083638160654/)
+  - Source: https://www.tiktok.com/@WhiteHouse/video/7554416083638160654
+  - _No text content captured._
+- [02:51 UTC - Like man on the street but different - the people have spoken](7554225045652901175/)
+  - Source: https://www.tiktok.com/@WhiteHouse/video/7554225045652901175
+  - Like man on the street but different - the people have spoken
+- [01:39 UTC - Soooo back](7554206367263853837/)
+  - Source: https://www.tiktok.com/@WhiteHouse/video/7554206367263853837
+  - Soooo back

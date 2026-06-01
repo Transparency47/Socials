@@ -8,7 +8,7 @@
 - Post URL: https://x.com/POTUS/status/2061479947659550864
 - Title: Repost of @WhiteHouse: Newark or anywhere in America, the message doesn’t change: @ICEgov ...
 - Date published: 2026-06-01T16:08:14+00:00
-- Date accessed: 2026-06-01T20:00:52.346404+00:00
+- Date accessed: 2026-06-01T20:19:14.563870+00:00
 - Content kind: repost
 - Language: en
 
@@ -18,7 +18,7 @@
 - favorites: 0
 - quotes: 0
 - replies: 0
-- retweets: 2808
+- retweets: 2931
 - views: 4
 
 ## Media Attachments
@@ -26,6 +26,8 @@
 ### Attachment 1: video
 - Source URL: https://video.twimg.com/amplify_video/2061474270023233536/vid/avc1/1080x1080/cS5hcZwRvXUMF65y.mp4?tag=27
 - Local file: media/01_video_2061474270023233536.mp4
+- Remote URL: https://cdn.comparify.app/archive/x/potus/cS5hcZwRvXUMF65y.mp4
+- Remote path: archive/x/potus/cS5hcZwRvXUMF65y.mp4
 - Preview URL: https://pbs.twimg.com/amplify_video_thumb/2061474270023233536/img/_ktFn8rbhDZglUTg.jpg
 - Content type: video/mp4
 - Dimensions: 1080 x 1080
@@ -98,14 +100,14 @@
       "fast_followers_count": 0,
       "favourites_count": 40,
       "follow_request_sent": false,
-      "followers_count": 4197530,
+      "followers_count": 4197564,
       "friends_count": 4,
       "has_custom_timelines": false,
       "is_translator": false,
-      "listed_count": 7616,
+      "listed_count": 7617,
       "media_count": 56,
       "needs_phone_verification": false,
-      "normal_followers_count": 4197530,
+      "normal_followers_count": 4197564,
       "notifications": false,
       "pinned_tweet_ids_str": [
         "1881408246067744887"
@@ -247,14 +249,14 @@
             "fast_followers_count": 0,
             "favourites_count": 40,
             "follow_request_sent": false,
-            "followers_count": 4197530,
+            "followers_count": 4197564,
             "friends_count": 4,
             "has_custom_timelines": false,
             "is_translator": false,
-            "listed_count": 7616,
+            "listed_count": 7617,
             "media_count": 56,
             "needs_phone_verification": false,
-            "normal_followers_count": 4197530,
+            "normal_followers_count": 4197564,
             "notifications": false,
             "pinned_tweet_ids_str": [
               "1881408246067744887"
@@ -363,7 +365,7 @@
       "lang": "en",
       "quote_count": 0,
       "reply_count": 0,
-      "retweet_count": 2808,
+      "retweet_count": 2931,
       "retweeted": false,
       "retweeted_status_result": {
         "result": {
@@ -413,14 +415,14 @@
                   "fast_followers_count": 0,
                   "favourites_count": 263,
                   "follow_request_sent": false,
-                  "followers_count": 4749047,
+                  "followers_count": 4749189,
                   "friends_count": 6,
                   "has_custom_timelines": false,
                   "is_translator": false,
                   "listed_count": 8865,
-                  "media_count": 5645,
+                  "media_count": 5654,
                   "needs_phone_verification": false,
-                  "normal_followers_count": 4749047,
+                  "normal_followers_count": 4749189,
                   "notifications": false,
                   "pinned_tweet_ids_str": [
                     "2013730570065359248"
@@ -428,7 +430,7 @@
                   "possibly_sensitive": false,
                   "profile_banner_url": "https://pbs.twimg.com/profile_banners/1879644163769335808/1769111449",
                   "profile_interstitial_type": "",
-                  "statuses_count": 15417,
+                  "statuses_count": 15427,
                   "time_zone": "",
                   "translator_type": "none",
                   "url": "https://t.co/0BqS4u1FRp",
@@ -490,7 +492,7 @@
           },
           "is_translatable": false,
           "legacy": {
-            "bookmark_count": 159,
+            "bookmark_count": 163,
             "bookmarked": false,
             "conversation_id_str": "2061474808441815402",
             "created_at": "Mon Jun 01 15:47:49 +0000 2026",
@@ -685,7 +687,7 @@
                 }
               ]
             },
-            "favorite_count": 12817,
+            "favorite_count": 13411,
             "favorited": false,
             "full_text": "Newark or anywhere in America, the message doesn’t change: @ICEgov operations will NOT be deterred.\n\nRiot, obstruct, or assault an officer and you will be arrested and prosecuted to the fullest extent of the law. \n\nPlay stupid games, win stupid prizes. https://t.co/XW3e8PAeH9",
             "id_str": "2061474808441815402",
@@ -693,9 +695,9 @@
             "lang": "en",
             "possibly_sensitive": false,
             "possibly_sensitive_editable": true,
-            "quote_count": 93,
-            "reply_count": 979,
-            "retweet_count": 2808,
+            "quote_count": 96,
+            "reply_count": 1006,
+            "retweet_count": 2931,
             "retweeted": false,
             "user_id_str": "1879644163769335808"
           },
@@ -703,7 +705,7 @@
           "source": "<a href=\"https://mobile.twitter.com\" rel=\"nofollow\">Twitter Web App</a>",
           "unmention_data": {},
           "views": {
-            "count": "209134",
+            "count": "216506",
             "state": "EnabledWithCount"
           }
         }

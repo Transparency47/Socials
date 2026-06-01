@@ -1,0 +1,7 @@
+# TikTok / RealDonaldTrump / 2026-02-24
+
+- Posts: 1
+
+- [22:55 UTC - I HAVE THE BEST SECRETARY OF DEFENSE](7610569229460442398/)
+  - Source: https://www.tiktok.com/@RealDonaldTrump/video/7610569229460442398
+  - I HAVE THE BEST SECRETARY OF DEFENSE

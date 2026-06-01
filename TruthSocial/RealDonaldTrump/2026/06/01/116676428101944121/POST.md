@@ -3,7 +3,7 @@
 <!-- account: RealDonaldTrump -->
 <!-- post_id: 116676428101944121 -->
 <!-- date_published: 2026-06-01T19:10:04.974000+00:00 -->
-<!-- date_accessed: 2026-06-01T19:47:49.873723+00:00 -->
+<!-- date_accessed: 2026-06-01T20:32:10.843836+00:00 -->
 
 # Truth Social post 116676428101944121
 

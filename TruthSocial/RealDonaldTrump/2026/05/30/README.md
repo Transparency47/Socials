@@ -1,0 +1,40 @@
+# TruthSocial / RealDonaldTrump / 2026-05-30
+
+- Posts: 12
+
+- [23:59 UTC - Watch my interview with my fantastic daughter-in-law, Lara Trump, tonight at 9:00 - FoxNew...](116666242491370108/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116666242491370108
+  - Watch my interview with my fantastic daughter-in-law, Lara Trump, tonight at 9:00 - FoxNews. President DJT
+- [23:56 UTC - Watch Mark Levin tonight at 8:00. A BIG SHOW!](116666229070254122/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116666229070254122
+  - Watch Mark Levin tonight at 8:00. A BIG SHOW!
+- [23:03 UTC - We should have a giant MAKE AMERICA GREAT AGAIN RALLY, for 250, instead of having overpric...](116666021445682015/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116666021445682015
+  - We should have a giant MAKE AMERICA GREAT AGAIN RALLY, for 250, instead of having overpriced singers, who nobody wants to hear, whose music is boring, and yet who do nothing but co...
+- [22:50 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) See, they have a Ballroom...](116665969343279897/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665969343279897
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) See, they have a Ballroom — It’s called The Great Hall of China! It’s very large and beautiful. Why do people fight...
+- [22:49 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The DronePort on the roof...](116665967507122618/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665967507122618
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The DronePort on the roof of the White House Ballroom! President DONALD J. TRUMP
+- [22:49 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Thank you Jaxson! It was ...](116665966249458240/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665966249458240
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Thank you Jaxson! It was great being with you. I know you’re taking some heat from the Radical Left Lunatics who ar...
+- [22:49 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Reflecting Pool, buil...](116665965710026985/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665965710026985
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Reflecting Pool, built between The Lincoln Memorial and The Washington Monument, which was destroyed by Barack...
+- [22:49 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I understand Artists are ...](116665964839850005/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665964839850005
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I understand Artists are getting “the yips” having to do with their performance on Wednesday, so I am thinking abou...
+- [22:48 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Can you imagine? A Barack...](116665964219866619/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665964219866619
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Can you imagine? A Barack Hussein Obama Judge named Christopher Cooper has stopped a magnificent structural and aes...
+- [22:48 UTC - See, they have a Ballroom — It’s called The Great Hall of China! It’s very large and beaut...](116665961327760060/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665961327760060
+  - See, they have a Ballroom — It’s called The Great Hall of China! It’s very large and beautiful. Why do people fight me for having something even better? The Dumocrats are CRAZY! Pr...
+- [22:22 UTC - Truth Social post 116665861715483617](116665861715483617/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665861715483617
+  - _No text content captured._
+- [22:12 UTC - Truth Social post 116665820664629822](116665820664629822/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665820664629822
+  - _No text content captured._

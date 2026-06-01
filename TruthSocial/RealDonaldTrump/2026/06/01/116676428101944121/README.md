@@ -8,20 +8,22 @@
 - Post URL: https://truthsocial.com/@realDonaldTrump/116676428101944121
 - Title: Truth Social post 116676428101944121
 - Date published: 2026-06-01T19:10:04.974000+00:00
-- Date accessed: 2026-06-01T19:47:49.873723+00:00
+- Date accessed: 2026-06-01T20:32:10.843836+00:00
 - Content kind: post
 
 ## Metrics
 
-- favorites: 3707
-- reblogs: 871
-- replies: 530
+- favorites: 6351
+- reblogs: 1412
+- replies: 912
 
 ## Media Attachments
 
 ### Attachment 1: image
 - Source URL: https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/676/427/929/087/508/original/c048ec27753e2de5.jpg
 - Local file: media/01_image_116676427929087508.jpg
+- Remote URL: https://cdn.comparify.app/archive/truthsocial/realdonaldtrump/c048ec27753e2de5.jpg
+- Remote path: archive/truthsocial/realdonaldtrump/c048ec27753e2de5.jpg
 - Preview URL: https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/media_attachments/files/116/676/427/929/087/508/small/c048ec27753e2de5.jpg
 - Content type: image/jpeg
 - Dimensions: 1125 x 692
@@ -46,7 +48,7 @@
     "emojis": [],
     "feeds_onboarded": true,
     "fields": [],
-    "followers_count": 12739651,
+    "followers_count": 12739911,
     "following_count": 69,
     "group": false,
     "group_reactions_onboarded": true,
@@ -85,7 +87,7 @@
       "emojis": [],
       "feeds_onboarded": true,
       "fields": [],
-      "followers_count": 12739650,
+      "followers_count": 12739911,
       "following_count": 69,
       "group": false,
       "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
@@ -110,12 +112,12 @@
     "card": null,
     "content": "<p></p>",
     "created_at": "2026-06-01T19:10:04.974Z",
-    "downvotes_count": 0,
+    "downvotes_count": 2,
     "editable": false,
     "edited_at": null,
     "emojis": [],
     "favourited": false,
-    "favourites_count": 3707,
+    "favourites_count": 6351,
     "group": null,
     "id": "116676428101944121",
     "in_reply_to": null,
@@ -160,14 +162,14 @@
     "reaction": null,
     "reblog": null,
     "reblogged": false,
-    "reblogs_count": 871,
-    "replies_count": 530,
+    "reblogs_count": 1412,
+    "replies_count": 912,
     "sensitive": false,
     "spoiler_text": "",
     "sponsored": false,
     "tags": [],
     "title": null,
-    "upvotes_count": 3707,
+    "upvotes_count": 6351,
     "uri": "https://truthsocial.com/@realDonaldTrump/116676428101944121",
     "url": "https://truthsocial.com/@realDonaldTrump/116676428101944121",
     "version": "1",

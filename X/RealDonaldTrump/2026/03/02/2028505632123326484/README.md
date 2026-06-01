@@ -26,6 +26,8 @@
 ### Attachment 1: video
 - Source URL: https://video.twimg.com/amplify_video/2028504808265744385/vid/avc1/3840x2026/WHLzpB21ED3e_2wi.mp4?tag=21
 - Local file: media/01_video_2028504808265744385.mp4
+- Remote URL: https://cdn.comparify.app/archive/x/realdonaldtrump/WHLzpB21ED3e_2wi.mp4
+- Remote path: archive/x/realdonaldtrump/WHLzpB21ED3e_2wi.mp4
 - Preview URL: https://pbs.twimg.com/amplify_video_thumb/2028504808265744385/img/GxqnMRrRQU6rC0ee.jpg
 - Content type: video/mp4
 - Dimensions: 2048 x 1081

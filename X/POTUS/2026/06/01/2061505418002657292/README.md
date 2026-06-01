@@ -8,7 +8,7 @@
 - Post URL: https://x.com/POTUS/status/2061505418002657292
 - Title: Repost of @WhiteHouse: "I had a very productive call with Prime Minister Bibi Netanyahu, o...
 - Date published: 2026-06-01T17:49:27+00:00
-- Date accessed: 2026-06-01T19:47:42.366352+00:00
+- Date accessed: 2026-06-01T20:19:14.563560+00:00
 - Content kind: repost
 - Language: en
 
@@ -18,7 +18,7 @@
 - favorites: 0
 - quotes: 0
 - replies: 0
-- retweets: 1860
+- retweets: 2001
 - views: 2
 
 ## Media Attachments
@@ -26,6 +26,8 @@
 ### Attachment 1: image
 - Source URL: https://pbs.twimg.com/media/HJvuPISXgAA5-Q_.jpg
 - Local file: media/01_image_2061503198142103552.jpg
+- Remote URL: https://cdn.comparify.app/archive/x/potus/HJvuPISXgAA5-Q.jpg
+- Remote path: archive/x/potus/HJvuPISXgAA5-Q.jpg
 - Preview URL: https://pbs.twimg.com/media/HJvuPISXgAA5-Q_.jpg
 - Content type: image/jpeg
 - Dimensions: 1638 x 2048
@@ -98,14 +100,14 @@
       "fast_followers_count": 0,
       "favourites_count": 40,
       "follow_request_sent": false,
-      "followers_count": 4197602,
+      "followers_count": 4197564,
       "friends_count": 4,
       "has_custom_timelines": false,
       "is_translator": false,
       "listed_count": 7617,
       "media_count": 56,
       "needs_phone_verification": false,
-      "normal_followers_count": 4197602,
+      "normal_followers_count": 4197564,
       "notifications": false,
       "pinned_tweet_ids_str": [
         "1881408246067744887"
@@ -118,6 +120,7 @@
       "translator_type": "none",
       "url": "https://t.co/OwBzgKL1qh",
       "utc_offset": 0,
+      "want_retweets": false,
       "withheld_description": "",
       "withheld_scope": ""
     },
@@ -126,9 +129,10 @@
       "location": ""
     },
     "media_permissions": {
-      "can_media_tag": false
+      "can_media_tag": true
     },
     "parody_commentary_fan_label": "None",
+    "premium_gifting_eligible": false,
     "privacy": {
       "protected": false
     },
@@ -149,17 +153,7 @@
     "super_follow_eligible": false,
     "super_followed_by": false,
     "super_following": false,
-    "tipjar_settings": {
-      "bandcamp_handle": "",
-      "bitcoin_handle": "",
-      "cash_app_handle": "",
-      "ethereum_handle": "",
-      "gofundme_handle": "",
-      "is_enabled": false,
-      "patreon_handle": "",
-      "pay_pal_handle": "",
-      "venmo_handle": ""
-    },
+    "tipjar_settings": {},
     "user_seed_tweet_count": 0,
     "verification": {
       "verified": false,
@@ -194,7 +188,7 @@
     },
     "verified_phone_status": false
   },
-  "source": "x_guest_graphql",
+  "source": "x_authenticated_graphql",
   "tweet": {
     "__typename": "Tweet",
     "cashtag_attachments": [],
@@ -255,14 +249,14 @@
             "fast_followers_count": 0,
             "favourites_count": 40,
             "follow_request_sent": false,
-            "followers_count": 4197602,
+            "followers_count": 4197564,
             "friends_count": 4,
             "has_custom_timelines": false,
             "is_translator": false,
             "listed_count": 7617,
             "media_count": 56,
             "needs_phone_verification": false,
-            "normal_followers_count": 4197602,
+            "normal_followers_count": 4197564,
             "notifications": false,
             "pinned_tweet_ids_str": [
               "1881408246067744887"
@@ -275,6 +269,7 @@
             "translator_type": "none",
             "url": "https://t.co/OwBzgKL1qh",
             "utc_offset": 0,
+            "want_retweets": false,
             "withheld_description": "",
             "withheld_scope": ""
           },
@@ -282,7 +277,7 @@
             "location": ""
           },
           "media_permissions": {
-            "can_media_tag": false
+            "can_media_tag": true
           },
           "parody_commentary_fan_label": "None",
           "privacy": {
@@ -304,17 +299,7 @@
           "super_follow_eligible": false,
           "super_followed_by": false,
           "super_following": false,
-          "tipjar_settings": {
-            "bandcamp_handle": "",
-            "bitcoin_handle": "",
-            "cash_app_handle": "",
-            "ethereum_handle": "",
-            "gofundme_handle": "",
-            "is_enabled": false,
-            "patreon_handle": "",
-            "pay_pal_handle": "",
-            "venmo_handle": ""
-          },
+          "tipjar_settings": {},
           "verification": {
             "verified": false,
             "verified_type": "Government"
@@ -324,6 +309,9 @@
       }
     },
     "disallowed_reply_controls": [],
+    "downvote_perspective": {
+      "is_downvoted": false
+    },
     "edit_control": {
       "edit_tweet_ids": [
         "2061505418002657292"
@@ -368,7 +356,7 @@
       "lang": "en",
       "quote_count": 0,
       "reply_count": 0,
-      "retweet_count": 1860,
+      "retweet_count": 2001,
       "retweeted": false,
       "retweeted_status_result": {
         "result": {
@@ -418,14 +406,14 @@
                   "fast_followers_count": 0,
                   "favourites_count": 263,
                   "follow_request_sent": false,
-                  "followers_count": 4748954,
+                  "followers_count": 4749189,
                   "friends_count": 6,
                   "has_custom_timelines": false,
                   "is_translator": false,
-                  "listed_count": 8863,
-                  "media_count": 5645,
+                  "listed_count": 8865,
+                  "media_count": 5654,
                   "needs_phone_verification": false,
-                  "normal_followers_count": 4748954,
+                  "normal_followers_count": 4749189,
                   "notifications": false,
                   "pinned_tweet_ids_str": [
                     "2013730570065359248"
@@ -433,11 +421,12 @@
                   "possibly_sensitive": false,
                   "profile_banner_url": "https://pbs.twimg.com/profile_banners/1879644163769335808/1769111449",
                   "profile_interstitial_type": "",
-                  "statuses_count": 15417,
+                  "statuses_count": 15427,
                   "time_zone": "",
                   "translator_type": "none",
                   "url": "https://t.co/0BqS4u1FRp",
                   "utc_offset": 0,
+                  "want_retweets": false,
                   "withheld_description": "",
                   "withheld_scope": ""
                 },
@@ -445,7 +434,7 @@
                   "location": "Washington, DC"
                 },
                 "media_permissions": {
-                  "can_media_tag": false
+                  "can_media_tag": true
                 },
                 "parody_commentary_fan_label": "None",
                 "privacy": {
@@ -467,17 +456,7 @@
                 "super_follow_eligible": false,
                 "super_followed_by": false,
                 "super_following": false,
-                "tipjar_settings": {
-                  "bandcamp_handle": "",
-                  "bitcoin_handle": "",
-                  "cash_app_handle": "",
-                  "ethereum_handle": "",
-                  "gofundme_handle": "",
-                  "is_enabled": false,
-                  "patreon_handle": "",
-                  "pay_pal_handle": "",
-                  "venmo_handle": ""
-                },
+                "tipjar_settings": {},
                 "verification": {
                   "verified": false,
                   "verified_type": "Government"
@@ -487,6 +466,9 @@
             }
           },
           "disallowed_reply_controls": [],
+          "downvote_perspective": {
+            "is_downvoted": false
+          },
           "edit_control": {
             "edit_tweet_ids": [
               "2061503579458818100"
@@ -501,7 +483,7 @@
           },
           "is_translatable": false,
           "legacy": {
-            "bookmark_count": 292,
+            "bookmark_count": 323,
             "bookmarked": false,
             "conversation_id_str": "2061503579458818100",
             "created_at": "Mon Jun 01 17:42:08 +0000 2026",
@@ -703,7 +685,7 @@
                 }
               ]
             },
-            "favorite_count": 7316,
+            "favorite_count": 7774,
             "favorited": false,
             "full_text": "\"I had a very productive call with Prime Minister Bibi Netanyahu, of Israel, and there will be no Troops going to Beirut... I had a very good call with Hezbollah, and they agreed that all shooting will stop.\" - President Donald J. Trump 🇺🇸 https://t.co/DJhysrmVnO",
             "id_str": "2061503579458818100",
@@ -711,9 +693,9 @@
             "lang": "en",
             "possibly_sensitive": false,
             "possibly_sensitive_editable": true,
-            "quote_count": 328,
-            "reply_count": 2535,
-            "retweet_count": 1860,
+            "quote_count": 366,
+            "reply_count": 2837,
+            "retweet_count": 2001,
             "retweeted": false,
             "user_id_str": "1879644163769335808"
           },
@@ -721,7 +703,7 @@
           "source": "<a href=\"https://mobile.twitter.com\" rel=\"nofollow\">Twitter Web App</a>",
           "unmention_data": {},
           "views": {
-            "count": "568593",
+            "count": "633202",
             "state": "EnabledWithCount"
           }
         }
@@ -729,7 +711,7 @@
       "user_id_str": "1879650942410481666"
     },
     "quick_promote_eligibility": {
-      "eligibility": "IneligibleUserUnauthorized"
+      "eligibility": "IneligibleNotVerified"
     },
     "rest_id": "2061505418002657292",
     "source": "<a href=\"https://mobile.twitter.com\" rel=\"nofollow\">Twitter Web App</a>",

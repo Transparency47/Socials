@@ -25,6 +25,8 @@
 ### Attachment 1: image
 - Source URL: https://pbs.twimg.com/media/HJv6fpTXYAA3Fhk.jpg
 - Local file: media/01_image_2061516676022099968.jpg
+- Remote URL: https://cdn.comparify.app/archive/x/rapidresponse47/HJv6fpTXYAA3Fhk.jpg
+- Remote path: archive/x/rapidresponse47/HJv6fpTXYAA3Fhk.jpg
 - Preview URL: https://pbs.twimg.com/media/HJv6fpTXYAA3Fhk.jpg
 - Content type: image/jpeg
 - Dimensions: 2048 x 1365

@@ -1,0 +1,73 @@
+# TruthSocial / RealDonaldTrump / 2026-05-31
+
+- Posts: 23
+
+- [23:32 UTC - Welcome home to Justo Betancourt, whose Daughter, Arianne, fought very hard to free her fa...](116671799302513930/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116671799302513930
+  - Welcome home to Justo Betancourt, whose Daughter, Arianne, fought very hard to free her father from Alligator Alcatraz. Enjoy your Freedom together!!! President DONALD J. TRUMP
+- [23:27 UTC - Fake News CNN said today, routinely, that my Iran Nuclear Deal doesn’t talk about Nuclear,...](116671779106880540/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116671779106880540
+  - Fake News CNN said today, routinely, that my Iran Nuclear Deal doesn’t talk about Nuclear, when actually it states, very clearly, that Iran will not have a Nuclear Weapon. It then...
+- [20:18 UTC - The New York Times wrote a story today entitled, “Trump Administration Sees Striking Exodu...](116671034709432638/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116671034709432638
+  - The New York Times wrote a story today entitled, “Trump Administration Sees Striking Exodus of Legal Talent,” as though that’s a bad thing, when actually, it’s very good. The peopl...
+- [18:03 UTC - Exclusive — Serbian President Aleksandar Vucic: Donald Trump ‘Much More Popular’ in Serbia...](116670504302792097/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116670504302792097
+  - Exclusive — Serbian President Aleksandar Vucic: Donald Trump ‘Much More Popular’ in Serbia than Any Other U.S. Leader Because He Is ‘Pragmatic,’ ‘Rational’: [https://www. breitbart...
+- [17:56 UTC - Truth Social post 116670475090172621](116670475090172621/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116670475090172621
+  - _No text content captured._
+- [17:55 UTC - Truth Social post 116670474400489159](116670474400489159/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116670474400489159
+  - _No text content captured._
+- [17:54 UTC - Congratulations to Congressman Gus Bilirakis, a great guy. He’s MAGA all the way. His firs...](116670469893129623/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116670469893129623
+  - Congratulations to Congressman Gus Bilirakis, a great guy. He’s MAGA all the way. His first grandchild!
+- [15:34 UTC - The DronePort at the White House Ballroom will be, perhaps, the most sophisticated anywher...](116669918375459254/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116669918375459254
+  - The DronePort at the White House Ballroom will be, perhaps, the most sophisticated anywhere in the World! It will safeguard our Nation’s Capital, Washington, D.C., long into the fu...
+- [15:33 UTC - Truth Social post 116669915496511361](116669915496511361/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116669915496511361
+  - _No text content captured._
+- [14:39 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I am pleased to announce ...](116669701552575618/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116669701552575618
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I am pleased to announce that United States Ambassador to Türkiye, Tom Barrack, who has done an outstanding job, wi...
+- [14:34 UTC - RT [@ NewtGingrich](https://truthsocial.com/@NewtGingrich) After spending this week review...](116669680863671672/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116669680863671672
+  - RT [@ NewtGingrich](https://truthsocial.com/@NewtGingrich) After spending this week reviewing the Iranian war I am now convinced President Trump is on the edge of an historic victo...
+- [14:33 UTC - Truth Social post 116669679847650677](116669679847650677/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116669679847650677
+  - _No text content captured._
+- [14:33 UTC - Truth Social post 116669679378180328](116669679378180328/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116669679378180328
+  - _No text content captured._
+- [14:28 UTC - Counter to The Failing New York Times on the Fake Reflecting Pool story, it will be MAGNIF...](116669658036895323/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116669658036895323
+  - Counter to The Failing New York Times on the Fake Reflecting Pool story, it will be MAGNIFICENT! President DONALD J. TRUMP
+- [14:09 UTC - I am pleased to announce that United States Ambassador to Türkiye, Tom Barrack, who has do...](116669584003805199/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116669584003805199
+  - I am pleased to announce that United States Ambassador to Türkiye, Tom Barrack, who has done an outstanding job, will be named Special Presidential Envoy to Syria and, likewise, Sp...
+- [05:08 UTC - Dhillon wants judge who allegedly attended a Fani Willis event off Georgia election integr...](116667457759700602/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116667457759700602
+  - Dhillon wants judge who allegedly attended a Fani Willis event off Georgia election integrity case: [https:// justthenews.com/government/cou rts-law/dhillon-moves-recuse-atlanta-ju...
+- [05:08 UTC - Cotton over chemicals: How Trump’s USDA is Making America’s Fabric Great Again: [https:// ...](116667455698157827/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116667455698157827
+  - Cotton over chemicals: How Trump’s USDA is Making America’s Fabric Great Again: [https:// justthenews.com/government/whi te-house/cotton-over-chemicals-how-trumps-usda-making-ameri...
+- [04:35 UTC - The results of my Physical Examination, taken at Walter Reed Military Medical Center, and ...](116667326723211656/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116667326723211656
+  - The results of my Physical Examination, taken at Walter Reed Military Medical Center, and just released, were extremely good. Unlike other U.S. Presidents, none of whom have ever t...
+- [03:21 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116667034702707989](116667035328008255/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116667035328008255
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116667034702707989
+- [03:21 UTC - Truth Social post 116667034702707989](116667034702707989/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116667034702707989
+  - _No text content captured._
+- [03:20 UTC - Truth Social post 116667032412157815](116667032412157815/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116667032412157815
+  - _No text content captured._
+- [02:57 UTC - Truth Social post 116666942823439731](116666942823439731/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116666942823439731
+  - _No text content captured._
+- [02:56 UTC - Truth Social post 116666939433642821](116666939433642821/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116666939433642821
+  - _No text content captured._

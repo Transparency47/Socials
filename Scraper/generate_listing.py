@@ -10,6 +10,8 @@ import json
 import re
 from pathlib import Path
 
+from r2_media import markdown_media_attachments
+
 
 ROOT_DIR = Path(__file__).resolve().parents[1]
 LISTING_PATH = ROOT_DIR / "listing.json"
@@ -62,6 +64,27 @@ def record_body_path(readme_path: Path) -> Path | None:
     return None
 
 
+def media_records_from_readme(readme: str) -> list[dict]:
+    records: list[dict] = []
+    for attachment in markdown_media_attachments(readme):
+        local_file = attachment.get("Local file")
+        source_url = attachment.get("Source URL")
+        remote_path = attachment.get("Remote path")
+        remote_url = attachment.get("Remote URL")
+        if not any([local_file, source_url, remote_url]):
+            continue
+        records.append(
+            {
+                "kind": attachment.get("kind"),
+                "localFile": local_file,
+                "remotePath": remote_path,
+                "sourceUrl": source_url,
+                "url": remote_url,
+            }
+        )
+    return records
+
+
 def build_record(readme_path: Path) -> dict:
     body_path = record_body_path(readme_path)
     if body_path is None:
@@ -73,17 +96,29 @@ def build_record(readme_path: Path) -> dict:
     body = read_text(body_path)
     title = metadata_line(readme, "Title") or first_heading(body) or body_path.parent.name
     platform = metadata_line(readme, "Platform") or relative_body.split("/", 1)[0]
-    account = metadata_line(readme, "Account")
+    parts = relative_body.split("/")
+    account = metadata_line(readme, "Account") or (parts[1] if len(parts) > 1 else None)
+    post_id = metadata_line(readme, "Post ID")
     date = metadata_line(readme, "Date published") or html_comment(body, "date_published")
     if date == "Unknown":
         date = None
     if date and len(date) > 10:
         date = date[:10]
-    media_files = sorted(
-        item.relative_to(readme_path.parent).as_posix()
-        for item in (readme_path.parent / "media").glob("*")
-        if item.is_file()
-    ) if (readme_path.parent / "media").exists() else []
+    media = media_records_from_readme(readme)
+    if not media and (readme_path.parent / "media").exists():
+        media = [
+            {
+                "kind": None,
+                "localFile": item.relative_to(readme_path.parent).as_posix(),
+                "remotePath": None,
+                "sourceUrl": None,
+                "url": None,
+            }
+            for item in sorted((readme_path.parent / "media").glob("*"))
+            if item.is_file()
+        ]
+    media_files = [item["localFile"] for item in media if item.get("localFile")]
+    media_urls = [item["url"] for item in media if item.get("url")]
     return {
         "id": stable_id("socials", relative_body),
         "title": title,
@@ -97,11 +132,13 @@ def build_record(readme_path: Path) -> dict:
         "metadata": {
             "platform": platform,
             "account": account,
-            "postId": metadata_line(readme, "Post ID"),
+            "postId": post_id,
             "accountDisplayName": metadata_line(readme, "Account display name"),
             "contentKind": metadata_line(readme, "Content kind"),
             "dateAccessed": metadata_line(readme, "Date accessed"),
+            "media": media,
             "mediaFiles": media_files,
+            "mediaUrls": media_urls,
         },
     }
 

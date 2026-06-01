@@ -26,6 +26,8 @@
 ### Attachment 1: image
 - Source URL: https://pbs.twimg.com/media/HJunECKXQAA2vVH.jpg
 - Local file: media/01_image_2061424942193786880.jpg
+- Remote URL: https://cdn.comparify.app/archive/x/vp/HJunECKXQAA2vVH.jpg
+- Remote path: archive/x/vp/HJunECKXQAA2vVH.jpg
 - Preview URL: https://pbs.twimg.com/media/HJunECKXQAA2vVH.jpg
 - Content type: image/jpeg
 - Dimensions: 2048 x 1365
@@ -33,6 +35,8 @@
 ### Attachment 2: image
 - Source URL: https://pbs.twimg.com/media/HJunE39WwAArtu9.jpg
 - Local file: media/02_image_2061424956634742784.jpg
+- Remote URL: https://cdn.comparify.app/archive/x/vp/HJunE39WwAArtu9.jpg
+- Remote path: archive/x/vp/HJunE39WwAArtu9.jpg
 - Preview URL: https://pbs.twimg.com/media/HJunE39WwAArtu9.jpg
 - Content type: image/jpeg
 - Dimensions: 2048 x 1365
@@ -40,6 +44,8 @@
 ### Attachment 3: image
 - Source URL: https://pbs.twimg.com/media/HJunGGRX0AAZdpm.jpg
 - Local file: media/03_image_2061424977656664064.jpg
+- Remote URL: https://cdn.comparify.app/archive/x/vp/HJunGGRX0AAZdpm.jpg
+- Remote path: archive/x/vp/HJunGGRX0AAZdpm.jpg
 - Preview URL: https://pbs.twimg.com/media/HJunGGRX0AAZdpm.jpg
 - Content type: image/jpeg
 - Dimensions: 2048 x 1365
@@ -47,6 +53,8 @@
 ### Attachment 4: image
 - Source URL: https://pbs.twimg.com/media/HJunIhIWcAAEEMY.jpg
 - Local file: media/04_image_2061425019226320896.jpg
+- Remote URL: https://cdn.comparify.app/archive/x/vp/HJunIhIWcAAEEMY.jpg
+- Remote path: archive/x/vp/HJunIhIWcAAEEMY.jpg
 - Preview URL: https://pbs.twimg.com/media/HJunIhIWcAAEEMY.jpg
 - Content type: image/jpeg
 - Dimensions: 2048 x 1365

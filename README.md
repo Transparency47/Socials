@@ -18,7 +18,9 @@ For X, Truth Social, and TikTok posts, each post folder contains:
 
 - `README.md` - metadata, source URL, account details, metrics, media attachment details, and embedded API data
 - `POST.md` - readable post text with source comments
-- `media/` - downloaded photos, videos, thumbnails, or other exposed attachments when the source metadata provides downloadable URLs
+- `media/` - local download cache for uploadable photos, videos, thumbnails, or other exposed attachments
+
+Media is uploaded to Cloudflare R2 and served from `https://cdn.comparify.app/`. Each uploaded attachment records a `Remote URL` in the post `README.md`, and `listing.json` includes those links in `metadata.media` and `metadata.mediaUrls`.
 
 For YouTube videos, each video folder contains:
 
@@ -55,6 +57,23 @@ export X_BEARER_TOKEN="your-token"
 
 For browser-authenticated X requests, put a local cookie export in `Scraper/.x_cookies.json` or set one of `X_COOKIES`, `TWITTER_COOKIES`, `X_COOKIE`, or `TWITTER_COOKIE` to a standard `name=value; name=value` cookie header. The local cookie file is ignored by git.
 
+R2 uploads use Cloudflare's S3-compatible API. Set these environment variables locally or as GitHub Actions secrets:
+
+```bash
+export R2_BUCKET="comparifycdn"
+export R2_ACCOUNT_ID="your-cloudflare-account-id"
+export R2_ACCESS_KEY_ID="your-r2-access-key-id"
+export R2_SECRET_ACCESS_KEY="your-r2-secret-access-key"
+export R2_PUBLIC_BASE_URL="https://cdn.comparify.app/"
+export R2_KEY_PREFIX="archive"
+```
+
+To upload existing local media files and annotate their post metadata:
+
+```bash
+python3 Scraper/upload_media_to_r2.py
+```
+
 Common commands:
 
 ```bash
@@ -65,6 +84,8 @@ python3 Scraper/social_scraper.py --platform truthsocial --account RealDonaldTru
 python3 Scraper/social_scraper.py --platform youtube --account WhiteHouse --max-items 5
 python3 Scraper/social_scraper.py --force
 ```
+
+Backfill runs default to a high per-account cap so paginated platforms keep walking older posts. Incremental runs default to 20 items for routine polling. Pass `--max-items` to override either behavior.
 
 The cron example in `Scraper/crontab.example` runs the incremental scraper every 15 minutes. Cron is not installed by this repository automatically.
 

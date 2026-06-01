@@ -8,7 +8,7 @@
 - Post URL: https://x.com/POTUS/status/2061500368354213969
 - Title: Repost of @WhiteHouse: FIVE MONTHS IN A ROW: U.S. Manufacturing Expands. American Manufact...
 - Date published: 2026-06-01T17:29:23+00:00
-- Date accessed: 2026-06-01T20:00:52.346310+00:00
+- Date accessed: 2026-06-01T20:19:14.563728+00:00
 - Content kind: repost
 - Language: en
 
@@ -18,13 +18,15 @@
 - favorites: 0
 - quotes: 0
 - replies: 0
-- retweets: 1001
+- retweets: 1041
 
 ## Media Attachments
 
 ### Attachment 1: image
 - Source URL: https://pbs.twimg.com/media/HJvl3sBWkAE-AOC.jpg
 - Local file: media/01_image_2061493999324532737.jpg
+- Remote URL: https://cdn.comparify.app/archive/x/potus/HJvl3sBWkAE-AOC.jpg
+- Remote path: archive/x/potus/HJvl3sBWkAE-AOC.jpg
 - Preview URL: https://pbs.twimg.com/media/HJvl3sBWkAE-AOC.jpg
 - Content type: image/jpeg
 - Dimensions: 1638 x 2048
@@ -97,14 +99,14 @@
       "fast_followers_count": 0,
       "favourites_count": 40,
       "follow_request_sent": false,
-      "followers_count": 4197530,
+      "followers_count": 4197564,
       "friends_count": 4,
       "has_custom_timelines": false,
       "is_translator": false,
-      "listed_count": 7616,
+      "listed_count": 7617,
       "media_count": 56,
       "needs_phone_verification": false,
-      "normal_followers_count": 4197530,
+      "normal_followers_count": 4197564,
       "notifications": false,
       "pinned_tweet_ids_str": [
         "1881408246067744887"
@@ -246,14 +248,14 @@
             "fast_followers_count": 0,
             "favourites_count": 40,
             "follow_request_sent": false,
-            "followers_count": 4197530,
+            "followers_count": 4197564,
             "friends_count": 4,
             "has_custom_timelines": false,
             "is_translator": false,
-            "listed_count": 7616,
+            "listed_count": 7617,
             "media_count": 56,
             "needs_phone_verification": false,
-            "normal_followers_count": 4197530,
+            "normal_followers_count": 4197564,
             "notifications": false,
             "pinned_tweet_ids_str": [
               "1881408246067744887"
@@ -655,7 +657,7 @@
       "possibly_sensitive_editable": true,
       "quote_count": 0,
       "reply_count": 0,
-      "retweet_count": 1001,
+      "retweet_count": 1041,
       "retweeted": false,
       "retweeted_status_result": {
         "result": {
@@ -705,14 +707,14 @@
                   "fast_followers_count": 0,
                   "favourites_count": 263,
                   "follow_request_sent": false,
-                  "followers_count": 4749047,
+                  "followers_count": 4749189,
                   "friends_count": 6,
                   "has_custom_timelines": false,
                   "is_translator": false,
                   "listed_count": 8865,
-                  "media_count": 5645,
+                  "media_count": 5654,
                   "needs_phone_verification": false,
-                  "normal_followers_count": 4749047,
+                  "normal_followers_count": 4749189,
                   "notifications": false,
                   "pinned_tweet_ids_str": [
                     "2013730570065359248"
@@ -720,7 +722,7 @@
                   "possibly_sensitive": false,
                   "profile_banner_url": "https://pbs.twimg.com/profile_banners/1879644163769335808/1769111449",
                   "profile_interstitial_type": "",
-                  "statuses_count": 15417,
+                  "statuses_count": 15427,
                   "time_zone": "",
                   "translator_type": "none",
                   "url": "https://t.co/0BqS4u1FRp",
@@ -782,7 +784,7 @@
           },
           "is_translatable": false,
           "legacy": {
-            "bookmark_count": 77,
+            "bookmark_count": 79,
             "bookmarked": false,
             "conversation_id_str": "2061494305852625033",
             "created_at": "Mon Jun 01 17:05:17 +0000 2026",
@@ -1088,7 +1090,7 @@
                 }
               ]
             },
-            "favorite_count": 4222,
+            "favorite_count": 4403,
             "favorited": false,
             "full_text": "FIVE MONTHS IN A ROW: U.S. Manufacturing Expands. \n\nAmerican Manufacturing is BACK. 🇺🇸 https://t.co/87zN18y5yo",
             "id_str": "2061494305852625033",
@@ -1096,9 +1098,9 @@
             "lang": "en",
             "possibly_sensitive": false,
             "possibly_sensitive_editable": true,
-            "quote_count": 40,
-            "reply_count": 523,
-            "retweet_count": 1001,
+            "quote_count": 41,
+            "reply_count": 537,
+            "retweet_count": 1041,
             "retweeted": false,
             "user_id_str": "1879644163769335808"
           },
@@ -1106,7 +1108,7 @@
           "source": "<a href=\"https://mobile.twitter.com\" rel=\"nofollow\">Twitter Web App</a>",
           "unmention_data": {},
           "views": {
-            "count": "129178",
+            "count": "133717",
             "state": "EnabledWithCount"
           }
         }

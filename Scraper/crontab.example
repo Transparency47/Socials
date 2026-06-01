@@ -1,1 +1,1 @@
-*/15 * * * * cd /path/to/Socials && /usr/bin/env python3 -u Scraper/social_scraper.py --incremental >> Scraper/social_scraper.log 2>&1
+*/15 * * * * cd /path/to/Socials && set -a && . ./.env && set +a && /usr/bin/env python3 -u Scraper/social_scraper.py --incremental --require-r2-upload >> Scraper/social_scraper.log 2>&1

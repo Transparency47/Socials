@@ -3,3 +3,4 @@ beautifulsoup4
 python-dateutil
 youtube-transcript-api
 yt-dlp
+boto3

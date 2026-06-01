@@ -8,15 +8,15 @@
 - Post URL: https://truthsocial.com/@realDonaldTrump/116676087445077253
 - Title: Talks are continuing, at a rapid pace, with the Islamic Republic of Iran. Thank you for yo...
 - Date published: 2026-06-01T17:43:26.963000+00:00
-- Date accessed: 2026-06-01T18:46:52.336011+00:00
+- Date accessed: 2026-06-01T20:32:10.844243+00:00
 - Content kind: post
 - Language: en
 
 ## Metrics
 
-- favorites: 13131
-- reblogs: 2598
-- replies: 2606
+- favorites: 19837
+- reblogs: 3909
+- replies: 3837
 
 ## Media Attachments
 
@@ -41,7 +41,7 @@
     "emojis": [],
     "feeds_onboarded": true,
     "fields": [],
-    "followers_count": 12739225,
+    "followers_count": 12739911,
     "following_count": 69,
     "group": false,
     "group_reactions_onboarded": true,
@@ -58,7 +58,7 @@
     "premium": true,
     "receive_only_follow_mentions": false,
     "show_nonmember_group_statuses": false,
-    "statuses_count": 33969,
+    "statuses_count": 33970,
     "tv_account": false,
     "tv_onboarded": false,
     "url": "https://truthsocial.com/@realDonaldTrump",
@@ -80,7 +80,7 @@
       "emojis": [],
       "feeds_onboarded": true,
       "fields": [],
-      "followers_count": 12739225,
+      "followers_count": 12739911,
       "following_count": 69,
       "group": false,
       "header": "https://static-assets-1.truthsocial.com/tmtg:prime-ts-assets/accounts/headers/107/780/257/626/128/497/original/ba3b910ba387bf4e.jpeg",
@@ -92,7 +92,7 @@
       "note": "<p></p>",
       "premium": true,
       "show_nonmember_group_statuses": false,
-      "statuses_count": 33969,
+      "statuses_count": 33970,
       "tv_account": false,
       "tv_onboarded": false,
       "unauth_visibility": true,
@@ -110,7 +110,7 @@
     "edited_at": null,
     "emojis": [],
     "favourited": false,
-    "favourites_count": 13131,
+    "favourites_count": 19837,
     "group": null,
     "id": "116676087445077253",
     "in_reply_to": null,
@@ -127,14 +127,14 @@
     "reaction": null,
     "reblog": null,
     "reblogged": false,
-    "reblogs_count": 2598,
-    "replies_count": 2606,
+    "reblogs_count": 3909,
+    "replies_count": 3837,
     "sensitive": false,
     "spoiler_text": "",
     "sponsored": false,
     "tags": [],
     "title": null,
-    "upvotes_count": 13131,
+    "upvotes_count": 19837,
     "uri": "https://truthsocial.com/@realDonaldTrump/116676087445077253",
     "url": "https://truthsocial.com/@realDonaldTrump/116676087445077253",
     "version": "1",

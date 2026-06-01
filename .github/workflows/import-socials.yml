@@ -45,6 +45,12 @@ jobs:
     env:
       X_BEARER_TOKEN: ${{ secrets.X_BEARER_TOKEN }}
       TWITTER_BEARER_TOKEN: ${{ secrets.TWITTER_BEARER_TOKEN }}
+      R2_BUCKET: comparifycdn
+      R2_ACCOUNT_ID: ${{ secrets.R2_ACCOUNT_ID }}
+      R2_ACCESS_KEY_ID: ${{ secrets.R2_ACCESS_KEY_ID }}
+      R2_SECRET_ACCESS_KEY: ${{ secrets.R2_SECRET_ACCESS_KEY }}
+      R2_PUBLIC_BASE_URL: https://cdn.comparify.app/
+      R2_KEY_PREFIX: archive
     steps:
       - name: Check out repository
         uses: actions/checkout@v4
@@ -77,6 +83,7 @@ jobs:
           if [[ "${FORCE}" == "true" ]]; then
             args+=("--force")
           fi
+          args+=("--require-r2-upload")
           python Scraper/social_scraper.py "${args[@]}"
 
       - name: Generate listing

@@ -26,6 +26,8 @@
 ### Attachment 1: image
 - Source URL: https://pbs.twimg.com/media/HJvvdi8XsAAgZj6.png
 - Local file: media/01_image_2061504545327394816.png
+- Remote URL: https://cdn.comparify.app/archive/x/whitehouse/HJvvdi8XsAAgZj6.png
+- Remote path: archive/x/whitehouse/HJvvdi8XsAAgZj6.png
 - Preview URL: https://pbs.twimg.com/media/HJvvdi8XsAAgZj6.png
 - Content type: image/png
 - Dimensions: 610 x 199

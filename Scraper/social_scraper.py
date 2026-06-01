@@ -37,6 +37,8 @@ import requests
 from bs4 import BeautifulSoup
 from dateutil import parser as date_parser
 
+from r2_media import R2Config, media_object_key, media_public_url, upload_file
+
 
 ROOT_DIR = Path(__file__).resolve().parents[1]
 SCRAPER_DIR = Path(__file__).resolve().parent
@@ -91,7 +93,10 @@ class MediaAttachment:
     height: int | None = None
     duration_ms: int | None = None
     local_path: str | None = None
+    remote_url: str | None = None
+    remote_path: str | None = None
     download_error: str | None = None
+    upload_error: str | None = None
     metadata: dict[str, Any] = field(default_factory=dict)
 
 
@@ -197,12 +202,12 @@ def parse_date_boundary(value: str | None, *, end_of_day: bool = False) -> dt.da
     return parsed
 
 
-def rate_limit_message(response: requests.Response) -> str:
+def rate_limit_message(response: requests.Response, service: str) -> str:
     reset = response.headers.get("x-rate-limit-reset")
     if reset and reset.isdigit():
         reset_at = dt.datetime.fromtimestamp(int(reset), tz=dt.timezone.utc)
-        return f"X rate limit reached; retry after {reset_at.isoformat()}"
-    return "X rate limit reached; retry later"
+        return f"{service} rate limit reached; retry after {reset_at.isoformat()}"
+    return f"{service} rate limit reached; retry later"
 
 
 def slugify(value: str, max_length: int = 96) -> str:
@@ -360,6 +365,8 @@ def format_media_metadata(media: list[MediaAttachment]) -> str:
         lines.append(f"### Attachment {index}: {item.kind}\n")
         lines.append(metadata_line("Source URL", item.source_url))
         lines.append(metadata_line("Local file", item.local_path))
+        lines.append(metadata_line("Remote URL", item.remote_url))
+        lines.append(metadata_line("Remote path", item.remote_path))
         lines.append(metadata_line("Preview URL", item.preview_url))
         lines.append(metadata_line("Content type", item.content_type))
         lines.append(metadata_line("Description", item.description))
@@ -367,6 +374,7 @@ def format_media_metadata(media: list[MediaAttachment]) -> str:
             lines.append(f"- Dimensions: {item.width or '?'} x {item.height or '?'}\n")
         lines.append(metadata_line("Duration ms", item.duration_ms))
         lines.append(metadata_line("Download error", item.download_error))
+        lines.append(metadata_line("Upload error", item.upload_error))
         lines.append("\n")
     return "".join(lines)
 
@@ -429,7 +437,9 @@ def post_markdown(record: ArchiveRecord) -> str:
         body.append("")
         for index, media in enumerate(record.media, 1):
             label = f"Attachment {index}: {media.kind}"
-            if media.local_path:
+            if media.remote_url:
+                body.append(f"- [{label}]({media.remote_url})")
+            elif media.local_path:
                 body.append(f"- [{label}]({media.local_path})")
             else:
                 body.append(f"- [{label}]({media.source_url})")
@@ -437,6 +447,8 @@ def post_markdown(record: ArchiveRecord) -> str:
                 body.append(f"  - Description: {media.description}")
             if media.download_error:
                 body.append(f"  - Download error: {media.download_error}")
+            if media.upload_error:
+                body.append(f"  - Upload error: {media.upload_error}")
         body.append("")
     return "\n".join(body).rstrip() + "\n"
 
@@ -590,6 +602,21 @@ def extension_from_url_or_type(url: str, content_type: str | None, fallback: str
     return fallback
 
 
+def restore_existing_media_paths(record: ArchiveRecord, folder: Path) -> None:
+    media_dir = folder / "media"
+    if not media_dir.exists():
+        return
+    for index, media in enumerate(record.media, 1):
+        if media.local_path:
+            continue
+        media_id = slugify(media.id or record.post_id or f"{index:02d}", max_length=48)
+        prefix = f"{index:02d}_{slugify(media.kind, max_length=20)}_{media_id}"
+        existing = sorted(media_dir.glob(f"{prefix}.*"))
+        if existing:
+            media.local_path = f"media/{existing[0].name}"
+            media.content_type = media.content_type or mimetypes.guess_type(existing[0].name)[0]
+
+
 def download_tiktok_video(record: ArchiveRecord, media: MediaAttachment, media_dir: Path, index: int, args: argparse.Namespace) -> bool:
     try:
         import yt_dlp
@@ -678,10 +705,53 @@ def download_media(session: requests.Session, record: ArchiveRecord, folder: Pat
             media.download_error = f"{type(exc).__name__}: {exc}"
 
 
+def upload_media_to_r2(record: ArchiveRecord, folder: Path, args: argparse.Namespace) -> None:
+    if args.skip_media or args.skip_r2_upload or not record.media:
+        return
+
+    config: R2Config = getattr(args, "r2_config", R2Config.from_env())
+    if not config.can_upload:
+        if args.require_r2_upload:
+            raise ScrapeError(f"R2 upload is required but not configured; missing {', '.join(config.missing_settings())}.")
+        return
+
+    for index, media in enumerate(record.media, 1):
+        if not media.local_path or media.download_error:
+            continue
+        local_path = folder / media.local_path
+        if not local_path.exists():
+            media.upload_error = f"Local media file is missing: {media.local_path}"
+            if args.require_r2_upload:
+                raise ScrapeError(media.upload_error)
+            continue
+
+        key = media_object_key(
+            platform=canonical_platform_dir(record.platform),
+            account=record.account,
+            source_url=media.source_url,
+            local_path=media.local_path,
+            post_id=record.post_id,
+            index=index,
+            content_type=media.content_type,
+            key_prefix=config.key_prefix,
+        )
+        media.remote_path = key
+        media.remote_url = media_public_url(key, config.public_base_url)
+        try:
+            upload_file(local_path, key, config, media.content_type)
+            media.upload_error = None
+        except Exception as exc:
+            media.upload_error = f"{type(exc).__name__}: {exc}"
+            if args.require_r2_upload:
+                raise ScrapeError(f"Could not upload {local_path.relative_to(ROOT_DIR)} to R2: {media.upload_error}") from exc
+
+
 def archive_record(session: requests.Session, record: ArchiveRecord, state: dict[str, Any], args: argparse.Namespace) -> bool:
     folder = output_dir_for(record)
+    restore_existing_media_paths(record, folder)
     if record.platform != "youtube":
         download_media(session, record, folder, args)
+        upload_media_to_r2(record, folder, args)
 
     wrote = False
     wrote |= write_if_changed(folder / "README.md", readme_markdown(record))
@@ -730,6 +800,8 @@ def scrape_truth_social(session: requests.Session, account: str, args: argparse.
     username = strip_handle(account)
     lookup_url = "https://truthsocial.com/api/v1/accounts/lookup"
     response = session.get(lookup_url, params={"acct": username}, timeout=REQUEST_TIMEOUT)
+    if response.status_code == 429:
+        raise RateLimitError(rate_limit_message(response, "Truth Social"))
     response.raise_for_status()
     profile = response.json()
 
@@ -750,6 +822,8 @@ def scrape_truth_social(session: requests.Session, account: str, args: argparse.
             params["max_id"] = max_id
         statuses_url = f"https://truthsocial.com/api/v1/accounts/{account_id}/statuses"
         result = session.get(statuses_url, params=params, timeout=REQUEST_TIMEOUT)
+        if result.status_code == 429:
+            raise RateLimitError(rate_limit_message(result, "Truth Social"))
         result.raise_for_status()
         statuses = result.json()
         if not statuses:
@@ -939,32 +1013,48 @@ def scrape_x_official(account: str, args: argparse.Namespace, token: str) -> lis
     user_response.raise_for_status()
     profile = user_response.json()["data"]
 
-    params = {
-        "max_results": max(5, min(100, args.max_items)),
+    base_params = {
         "tweet.fields": "attachments,author_id,conversation_id,created_at,entities,lang,public_metrics,referenced_tweets,text",
         "expansions": "attachments.media_keys",
         "media.fields": "alt_text,duration_ms,height,media_key,preview_image_url,public_metrics,type,url,variants,width",
     }
     if not args.include_replies:
-        params["exclude"] = "replies"
-    tweets_url = f"https://api.x.com/2/users/{profile['id']}/tweets"
-    tweets_response = api.get(tweets_url, params=params, timeout=REQUEST_TIMEOUT)
-    if tweets_response.status_code == 404:
-        tweets_response = api.get(
-            f"https://api.twitter.com/2/users/{profile['id']}/tweets",
-            params=params,
-            timeout=REQUEST_TIMEOUT,
-        )
-    tweets_response.raise_for_status()
-    payload = tweets_response.json()
-    media_map = {item["media_key"]: item for item in payload.get("includes", {}).get("media", [])}
+        base_params["exclude"] = "replies"
+    if getattr(args, "since_dt", None):
+        base_params["start_time"] = args.since_dt.astimezone(dt.timezone.utc).isoformat().replace("+00:00", "Z")
+    if getattr(args, "until_dt", None):
+        base_params["end_time"] = args.until_dt.astimezone(dt.timezone.utc).isoformat().replace("+00:00", "Z")
 
+    tweets_url = f"https://api.x.com/2/users/{profile['id']}/tweets"
     records: list[ArchiveRecord] = []
-    for tweet in payload.get("data", [])[: args.max_items]:
-        post_id = str(tweet["id"])
-        text = tweet.get("text") or ""
-        records.append(
-            ArchiveRecord(
+    next_token: str | None = None
+    pages = 0
+    while len(records) < args.max_items:
+        pages += 1
+        if args.max_pages is not None and pages > args.max_pages:
+            break
+        params = dict(base_params)
+        params["max_results"] = max(5, min(100, args.max_items - len(records)))
+        if next_token:
+            params["pagination_token"] = next_token
+
+        tweets_response = api.get(tweets_url, params=params, timeout=REQUEST_TIMEOUT)
+        if tweets_response.status_code == 404:
+            tweets_response = api.get(
+                f"https://api.twitter.com/2/users/{profile['id']}/tweets",
+                params=params,
+                timeout=REQUEST_TIMEOUT,
+            )
+        if tweets_response.status_code == 429:
+            raise RateLimitError(rate_limit_message(tweets_response, "X"))
+        tweets_response.raise_for_status()
+        payload = tweets_response.json()
+        media_map = {item["media_key"]: item for item in payload.get("includes", {}).get("media", [])}
+
+        for tweet in payload.get("data", []):
+            post_id = str(tweet["id"])
+            text = tweet.get("text") or ""
+            record = ArchiveRecord(
                 platform="x",
                 account=account,
                 account_display_name=profile.get("name"),
@@ -981,7 +1071,15 @@ def scrape_x_official(account: str, args: argparse.Namespace, token: str) -> lis
                 media=x_media_attachments(tweet, media_map),
                 raw={"profile": profile, "tweet": tweet, "media": [media_map[key] for key in tweet.get("attachments", {}).get("media_keys", []) if key in media_map]},
             )
-        )
+            if in_date_window(record.published, args):
+                records.append(record)
+                if len(records) >= args.max_items:
+                    break
+
+        next_token = (payload.get("meta") or {}).get("next_token")
+        if not next_token:
+            break
+        time.sleep(REQUEST_DELAY_SECONDS)
     return records
 
 
@@ -1082,7 +1180,7 @@ def x_graphql_get(
         timeout=REQUEST_TIMEOUT,
     )
     if response.status_code == 429:
-        raise RateLimitError(rate_limit_message(response))
+        raise RateLimitError(rate_limit_message(response, "X"))
     response.raise_for_status()
     return response.json()
 
@@ -1443,7 +1541,7 @@ def scrape_tiktok(session: requests.Session, account: str, args: argparse.Namesp
 
     url = f"https://www.tiktok.com/@{username}"
     options = {
-        "extract_flat": False,
+        "extract_flat": True,
         "playlistend": args.max_items,
         "quiet": True,
         "no_warnings": True,
@@ -1462,21 +1560,21 @@ def scrape_tiktok(session: requests.Session, account: str, args: argparse.Namesp
         post_id = str(entry.get("id") or hashlib.sha1(str(entry).encode("utf-8")).hexdigest()[:16])
         text = entry.get("description") or entry.get("title") or ""
         published = parse_datetime(entry.get("timestamp")) or parse_datetime(entry.get("upload_date"))
-        webpage_url = entry.get("webpage_url") or f"https://www.tiktok.com/@{username}/video/{post_id}"
+        webpage_url = entry.get("webpage_url") or entry.get("url") or f"https://www.tiktok.com/@{username}/video/{post_id}"
+        if not in_date_window(published, args):
+            continue
         media: list[MediaAttachment] = []
-        video_url = entry.get("url")
-        if video_url:
-            media.append(
-                MediaAttachment(
-                    source_url=webpage_url,
-                    kind="video",
-                    id=post_id,
-                    content_type="video/mp4" if entry.get("ext") == "mp4" else None,
-                    preview_url=entry.get("thumbnail"),
-                    duration_ms=int(float(entry["duration"]) * 1000) if entry.get("duration") else None,
-                    metadata={"download_url": video_url},
-                )
+        media.append(
+            MediaAttachment(
+                source_url=webpage_url,
+                kind="video",
+                id=post_id,
+                content_type="video/mp4" if entry.get("ext") == "mp4" else None,
+                preview_url=entry.get("thumbnail"),
+                duration_ms=int(float(entry["duration"]) * 1000) if entry.get("duration") else None,
+                metadata={"download_url": entry.get("url") or webpage_url},
             )
+        )
         if entry.get("thumbnail"):
             media.append(MediaAttachment(source_url=entry["thumbnail"], kind="image", id=f"{post_id}_thumbnail"))
         records.append(
@@ -1704,7 +1802,12 @@ def parse_args(argv: list[str]) -> argparse.Namespace:
     parser.add_argument("--platform", choices=sorted(PLATFORM_ALIASES), help="Limit scraping to one platform.")
     parser.add_argument("--account", help="Limit scraping to one account directory/handle.")
     parser.add_argument("--post-id", help="Archive only a specific post/video ID from fetched results.")
-    parser.add_argument("--max-items", type=int, default=DEFAULT_MAX_ITEMS, help="Maximum posts/videos per account.")
+    parser.add_argument(
+        "--max-items",
+        type=int,
+        default=None,
+        help=f"Maximum posts/videos per account. Defaults to {DEFAULT_MAX_ITEMS} for incremental runs and {DEFAULT_BACKFILL_MAX_ITEMS} for backfills.",
+    )
     parser.add_argument("--max-pages", type=int, default=None, help="Maximum paginated pages where supported.")
     parser.add_argument("--since", help="Only archive posts published at or after this date/time, e.g. 2025-01-20.")
     parser.add_argument("--until", help="Only archive posts published at or before this date/time, or 'now'.")
@@ -1719,6 +1822,8 @@ def parse_args(argv: list[str]) -> argparse.Namespace:
     parser.add_argument("--include-replies", action="store_true", help="Include replies where the platform API supports it.")
     parser.add_argument("--skip-media", action="store_true", help="Write metadata/posts without downloading attachments.")
     parser.add_argument("--max-media-mb", type=int, default=DEFAULT_MAX_MEDIA_MB, help="Maximum size per media file.")
+    parser.add_argument("--skip-r2-upload", action="store_true", help="Download media locally without uploading it to Cloudflare R2.")
+    parser.add_argument("--require-r2-upload", action="store_true", help="Fail the run if media cannot be uploaded to Cloudflare R2.")
     parser.add_argument(
         "--transcript-languages",
         default="en,en-US",
@@ -1731,18 +1836,25 @@ def parse_args(argv: list[str]) -> argparse.Namespace:
         args.platform = "x"
         args.since = args.since or TRUMP_SECOND_INAUGURATION_DATE
         args.until = args.until or "now"
-        if args.max_items == DEFAULT_MAX_ITEMS:
+        if args.max_items is None:
             args.max_items = DEFAULT_BACKFILL_MAX_ITEMS
         if args.x_page_delay is None:
             args.x_page_delay = 5.0
     if not args.incremental:
         args.backfill = True
+    if args.max_items is None:
+        args.max_items = DEFAULT_MAX_ITEMS if args.incremental else DEFAULT_BACKFILL_MAX_ITEMS
     if args.max_items < 1:
         parser.error("--max-items must be at least 1")
     args.since_dt = parse_date_boundary(args.since)
     args.until_dt = parse_date_boundary(args.until, end_of_day=True)
     if args.since_dt and args.until_dt and args.since_dt > args.until_dt:
         parser.error("--since must be earlier than or equal to --until")
+    args.r2_config = R2Config.from_env()
+    if args.require_r2_upload and args.skip_r2_upload:
+        parser.error("--require-r2-upload cannot be combined with --skip-r2-upload")
+    if args.require_r2_upload and not args.skip_media and not args.r2_config.can_upload:
+        parser.error(f"--require-r2-upload is missing {', '.join(args.r2_config.missing_settings())}")
     return args
 
 
