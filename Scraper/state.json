@@ -1,0 +1,229 @@
+{
+  "last_errors": [
+    "X/POTUS: X rate limit reached; retry after 2026-06-01T20:18:10+00:00"
+  ],
+  "last_successful_run": "2026-06-01T20:08:03.533001+00:00",
+  "seen_posts": {
+    "tiktok:whitehouse:7646499579185171743": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-01T19:47:52.816932+00:00",
+      "path": "TikTok/WhiteHouse/2026/06/01/7646499579185171743",
+      "platform": "tiktok",
+      "post_id": "7646499579185171743",
+      "published": "2026-06-01T18:44:03+00:00",
+      "title": "This is the way",
+      "url": "https://www.tiktok.com/@WhiteHouse/video/7646499579185171743"
+    },
+    "truthsocial:realdonaldtrump:116670475090172621": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-01T18:51:21.992949+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/05/31/116670475090172621",
+      "platform": "truthsocial",
+      "post_id": "116670475090172621",
+      "published": "2026-05-31T17:56:09.224000+00:00",
+      "title": "Truth Social post 116670475090172621",
+      "url": "https://truthsocial.com/@realDonaldTrump/116670475090172621"
+    },
+    "truthsocial:realdonaldtrump:116676087445077253": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-01T18:46:52.336011+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/01/116676087445077253",
+      "platform": "truthsocial",
+      "post_id": "116676087445077253",
+      "published": "2026-06-01T17:43:26.963000+00:00",
+      "title": "Talks are continuing, at a rapid pace, with the Islamic Republic of Iran. Thank you for yo...",
+      "url": "https://truthsocial.com/@realDonaldTrump/116676087445077253"
+    },
+    "truthsocial:realdonaldtrump:116676428101944121": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-01T19:47:49.873723+00:00",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/01/116676428101944121",
+      "platform": "truthsocial",
+      "post_id": "116676428101944121",
+      "published": "2026-06-01T19:10:04.974000+00:00",
+      "title": "Truth Social post 116676428101944121",
+      "url": "https://truthsocial.com/@realDonaldTrump/116676428101944121"
+    },
+    "x:potus:2061479947659550864": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-01T20:00:52.346404+00:00",
+      "path": "X/POTUS/2026/06/01/2061479947659550864",
+      "platform": "x",
+      "post_id": "2061479947659550864",
+      "published": "2026-06-01T16:08:14+00:00",
+      "title": "Repost of @WhiteHouse: Newark or anywhere in America, the message doesn\u2019t change: @ICEgov ...",
+      "url": "https://x.com/POTUS/status/2061479947659550864"
+    },
+    "x:potus:2061500368354213969": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-01T20:00:52.346310+00:00",
+      "path": "X/POTUS/2026/06/01/2061500368354213969",
+      "platform": "x",
+      "post_id": "2061500368354213969",
+      "published": "2026-06-01T17:29:23+00:00",
+      "title": "Repost of @WhiteHouse: FIVE MONTHS IN A ROW: U.S. Manufacturing Expands. American Manufact...",
+      "url": "https://x.com/POTUS/status/2061500368354213969"
+    },
+    "x:potus:2061505418002657292": {
+      "account": "POTUS",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-01T19:47:42.366352+00:00",
+      "path": "X/POTUS/2026/06/01/2061505418002657292",
+      "platform": "x",
+      "post_id": "2061505418002657292",
+      "published": "2026-06-01T17:49:27+00:00",
+      "title": "Repost of @WhiteHouse: \"I had a very productive call with Prime Minister Bibi Netanyahu, o...",
+      "url": "https://x.com/POTUS/status/2061505418002657292"
+    },
+    "x:rapidresponse47:2061520562443202662": {
+      "account": "RapidResponse47",
+      "content_kind": "post",
+      "last_accessed": "2026-06-01T20:00:56.247676+00:00",
+      "path": "X/RapidResponse47/2026/06/01/2061520562443202662",
+      "platform": "x",
+      "post_id": "2061520562443202662",
+      "published": "2026-06-01T18:49:37+00:00",
+      "title": "\"President Donald Trump\u2019s administration set out to clean up Washington, D.C., 14 months a...",
+      "url": "https://x.com/RapidResponse47/status/2061520562443202662"
+    },
+    "x:rapidresponse47:2061521639490109495": {
+      "account": "RapidResponse47",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-01T19:47:44.061668+00:00",
+      "path": "X/RapidResponse47/2026/06/01/2061521639490109495",
+      "platform": "x",
+      "post_id": "2061521639490109495",
+      "published": "2026-06-01T18:53:54+00:00",
+      "title": "Repost of @TaylorRogers47: \ud83d\udea8In just 14 months, @POTUS &amp; @SecretaryBurgum have Made DC ...",
+      "url": "https://x.com/RapidResponse47/status/2061521639490109495"
+    },
+    "x:rapidresponse47:2061536095729262641": {
+      "account": "RapidResponse47",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-01T20:00:56.247484+00:00",
+      "path": "X/RapidResponse47/2026/06/01/2061536095729262641",
+      "platform": "x",
+      "post_id": "2061536095729262641",
+      "published": "2026-06-01T19:51:21+00:00",
+      "title": "Repost of @SecretaryBurgum: The Reflecting Pool is now 100% coated with American Flag Blue...",
+      "url": "https://x.com/RapidResponse47/status/2061536095729262641"
+    },
+    "x:realdonaldtrump:2028505632123326484": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-01T20:00:58.398814+00:00",
+      "path": "X/RealDonaldTrump/2026/03/02/2028505632123326484",
+      "platform": "x",
+      "post_id": "2028505632123326484",
+      "published": "2026-03-02T16:20:05+00:00",
+      "title": "https://t.co/uAxTGrJisv",
+      "url": "https://x.com/RealDonaldTrump/status/2028505632123326484"
+    },
+    "x:realdonaldtrump:2056827052851105947": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-01T20:00:58.398778+00:00",
+      "path": "X/RealDonaldTrump/2026/05/19/2056827052851105947",
+      "platform": "x",
+      "post_id": "2056827052851105947",
+      "published": "2026-05-19T19:59:18+00:00",
+      "title": "Horrible Congressman Thomas Massie put out an old Endorsement, from many years ago, of him...",
+      "url": "https://x.com/RealDonaldTrump/status/2056827052851105947"
+    },
+    "x:realdonaldtrump:2057968277062582378": {
+      "account": "RealDonaldTrump",
+      "content_kind": "post",
+      "last_accessed": "2026-06-01T19:47:45.538312+00:00",
+      "path": "X/RealDonaldTrump/2026/05/22/2057968277062582378",
+      "platform": "x",
+      "post_id": "2057968277062582378",
+      "published": "2026-05-22T23:34:07+00:00",
+      "title": "https://t.co/LU644jFVH2",
+      "url": "https://x.com/RealDonaldTrump/status/2057968277062582378"
+    },
+    "x:vp:2061143719626096927": {
+      "account": "VP",
+      "content_kind": "post",
+      "last_accessed": "2026-06-01T20:01:02.334787+00:00",
+      "path": "X/VP/2026/05/31/2061143719626096927",
+      "platform": "x",
+      "post_id": "2061143719626096927",
+      "published": "2026-05-31T17:52:11+00:00",
+      "title": "Last week, Vice President Vance invited Attorneys General from across the country to parti...",
+      "url": "https://x.com/VP/status/2061143719626096927"
+    },
+    "x:vp:2061428933824774450": {
+      "account": "VP",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-01T20:01:02.334751+00:00",
+      "path": "X/VP/2026/06/01/2061428933824774450",
+      "platform": "x",
+      "post_id": "2061428933824774450",
+      "published": "2026-06-01T12:45:31+00:00",
+      "title": "Repost of @WHFraudTF: \ud83d\udcf8of last week's anti-fraud roundtable with Attorneys General from ar...",
+      "url": "https://x.com/VP/status/2061428933824774450"
+    },
+    "x:vp:2061519824426074270": {
+      "account": "VP",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-01T19:47:47.636364+00:00",
+      "path": "X/VP/2026/06/01/2061519824426074270",
+      "platform": "x",
+      "post_id": "2061519824426074270",
+      "published": "2026-06-01T18:46:41+00:00",
+      "title": "Repost of @JDVance: Usha's Summer Reading Challenge was a hit last year, and I'm so proud ...",
+      "url": "https://x.com/VP/status/2061519824426074270"
+    },
+    "x:whitehouse:2061504686306267430": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-01T20:00:30.197385+00:00",
+      "path": "X/WhiteHouse/2026/06/01/2061504686306267430",
+      "platform": "x",
+      "post_id": "2061504686306267430",
+      "published": "2026-06-01T17:46:32+00:00",
+      "title": "President Trump on talks continuing with Iran: https://t.co/jvBfO5p0V0",
+      "url": "https://x.com/WhiteHouse/status/2061504686306267430"
+    },
+    "x:whitehouse:2061523159442960883": {
+      "account": "WhiteHouse",
+      "content_kind": "post",
+      "last_accessed": "2026-06-01T20:00:30.197276+00:00",
+      "path": "X/WhiteHouse/2026/06/01/2061523159442960883",
+      "platform": "x",
+      "post_id": "2061523159442960883",
+      "published": "2026-06-01T18:59:57+00:00",
+      "title": "Rampant fraud is being identified, prosecuted, and extinguished across America under the T...",
+      "url": "https://x.com/WhiteHouse/status/2061523159442960883"
+    },
+    "x:whitehouse:2061534126977556608": {
+      "account": "WhiteHouse",
+      "content_kind": "repost",
+      "last_accessed": "2026-06-01T19:47:49.273386+00:00",
+      "path": "X/WhiteHouse/2026/06/01/2061534126977556608",
+      "platform": "x",
+      "post_id": "2061534126977556608",
+      "published": "2026-06-01T19:43:31+00:00",
+      "title": "Repost of @DHSgov: WATCH: Sec. Mullin Holds Press Conference Honoring Several Heroes from ...",
+      "url": "https://x.com/WhiteHouse/status/2061534126977556608"
+    },
+    "youtube:whitehouse:cB33RBpFKA4": {
+      "account": "WhiteHouse",
+      "content_kind": "youtube_video",
+      "last_accessed": "2026-06-01T19:47:55.844480+00:00",
+      "path": "YouTube/WhiteHouse/2026/06/01/cB33RBpFKA4",
+      "platform": "youtube",
+      "post_id": "cB33RBpFKA4",
+      "published": "2026-06-01T15:56:08+00:00",
+      "title": "Newark or anywhere in America, the message doesn\u2019t change: ICE operations will NOT be deterred",
+      "url": "https://www.youtube.com/shorts/cB33RBpFKA4"
+    }
+  },
+  "x_backfill_cursors": {}
+}

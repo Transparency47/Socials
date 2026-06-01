@@ -1,0 +1,9 @@
+.DS_Store
+.env
+.env.*
+__pycache__/
+*.py[cod]
+Scraper/*.log
+Scraper/*.tmp
+Scraper/.*.lock
+Scraper/.x_cookies.json

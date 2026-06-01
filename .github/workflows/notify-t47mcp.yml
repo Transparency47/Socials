@@ -1,0 +1,31 @@
+name: Notify T47 MCP
+
+on:
+  push:
+    branches:
+      - main
+
+jobs:
+  dispatch:
+    runs-on: ubuntu-latest
+    env:
+      DISPATCH_TOKEN: ${{ secrets.T47MCP_DISPATCH_TOKEN }}
+    steps:
+      - name: Dispatch ingest
+        uses: actions/github-script@v7
+        if: ${{ env.DISPATCH_TOKEN != '' }}
+        with:
+          github-token: ${{ env.DISPATCH_TOKEN }}
+          script: |
+            await github.rest.repos.createDispatchEvent({
+              owner: "Transparency47",
+              repo: "T47MCP",
+              event_type: "source-pushed",
+              client_payload: {
+                source_id: "socials",
+                source_repo: `${context.repo.owner}/${context.repo.repo}`,
+                commit_sha: context.sha,
+                before_sha: context.payload.before,
+                ref: context.ref
+              }
+            });

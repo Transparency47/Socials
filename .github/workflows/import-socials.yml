@@ -1,0 +1,108 @@
+name: Import Socials
+
+on:
+  workflow_dispatch:
+    inputs:
+      mode:
+        description: "Scrape mode: incremental or backfill."
+        required: false
+        default: "incremental"
+        type: choice
+        options:
+          - incremental
+          - backfill
+      platform:
+        description: "Optional platform filter: x, truthsocial, tiktok, youtube."
+        required: false
+        type: string
+      account:
+        description: "Optional account directory/handle filter."
+        required: false
+        type: string
+      max_items:
+        description: "Maximum posts/videos per account."
+        required: false
+        default: "20"
+        type: string
+      force:
+        description: "Re-fetch and overwrite known posts."
+        required: false
+        default: false
+        type: boolean
+  schedule:
+    - cron: "*/15 * * * *"
+
+permissions:
+  contents: write
+
+concurrency:
+  group: import-socials
+  cancel-in-progress: false
+
+jobs:
+  import:
+    runs-on: ubuntu-latest
+    env:
+      X_BEARER_TOKEN: ${{ secrets.X_BEARER_TOKEN }}
+      TWITTER_BEARER_TOKEN: ${{ secrets.TWITTER_BEARER_TOKEN }}
+    steps:
+      - name: Check out repository
+        uses: actions/checkout@v4
+
+      - name: Set up Python
+        uses: actions/setup-python@v5
+        with:
+          python-version: "3.12"
+
+      - name: Install dependencies
+        run: python -m pip install -r Scraper/requirements.txt
+
+      - name: Import social posts
+        shell: bash
+        env:
+          MODE: ${{ inputs.mode || 'incremental' }}
+          PLATFORM: ${{ inputs.platform }}
+          ACCOUNT: ${{ inputs.account }}
+          MAX_ITEMS: ${{ inputs.max_items || '20' }}
+          FORCE: ${{ inputs.force || false }}
+        run: |
+          set -euo pipefail
+          args=("--${MODE}" "--max-items" "${MAX_ITEMS}")
+          if [[ -n "${PLATFORM}" ]]; then
+            args+=("--platform" "${PLATFORM}")
+          fi
+          if [[ -n "${ACCOUNT}" ]]; then
+            args+=("--account" "${ACCOUNT}")
+          fi
+          if [[ "${FORCE}" == "true" ]]; then
+            args+=("--force")
+          fi
+          python Scraper/social_scraper.py "${args[@]}"
+
+      - name: Generate listing
+        run: python Scraper/generate_listing.py
+
+      - name: Verify generated output
+        run: |
+          set -euo pipefail
+          test -f listing.json
+          if grep -R -nI -E '/Users/|Local source|sourcePath' README.md X TruthSocial TikTok YouTube listing.json Scraper 2>/dev/null; then
+            echo "Generated output contains a forbidden local path." >&2
+            exit 1
+          fi
+
+      - name: Commit generated changes
+        shell: bash
+        run: |
+          set -euo pipefail
+          git config user.name "github-actions[bot]"
+          git config user.email "41898282+github-actions[bot]@users.noreply.github.com"
+
+          if [[ -z "$(git status --porcelain)" ]]; then
+            echo "No generated changes to commit."
+            exit 0
+          fi
+
+          git add README.md X TruthSocial TikTok YouTube Scraper/state.json listing.json
+          git commit -m "Import social posts"
+          git push

@@ -1,0 +1,1 @@
+*/15 * * * * cd /path/to/Socials && /usr/bin/env python3 -u Scraper/social_scraper.py --incremental >> Scraper/social_scraper.log 2>&1

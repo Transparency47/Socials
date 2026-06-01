@@ -1,0 +1,437 @@
+{
+  "generatedAt": "2026-06-01T20:13:50.176919+00:00",
+  "records": [
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-01",
+      "id": "socials:5858b1fddc5af512",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-01T19:47:49.873723+00:00",
+        "mediaFiles": [
+          "media/01_image_116676427929087508.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116676428101944121"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/01/116676428101944121/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/01/116676428101944121/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116676428101944121",
+      "summary": null,
+      "title": "Truth Social post 116676428101944121"
+    },
+    {
+      "category": "TikTok",
+      "date": "2026-06-01",
+      "id": "socials:2e3fa60b4befff28",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "whitehouse",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-01T19:47:52.816932+00:00",
+        "mediaFiles": [
+          "media/01_video_7646499579185171743.mp4",
+          "media/02_image_7646499579185171743_thumbnail.jpg"
+        ],
+        "platform": "TikTok",
+        "postId": "7646499579185171743"
+      },
+      "metadataPath": "TikTok/WhiteHouse/2026/06/01/7646499579185171743/README.md",
+      "path": "TikTok/WhiteHouse/2026/06/01/7646499579185171743/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7646499579185171743",
+      "summary": "This is the way",
+      "title": "This is the way"
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-06-01",
+      "id": "socials:40f2ebafe25705e8",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-01T18:46:52.336011+00:00",
+        "mediaFiles": [],
+        "platform": "TruthSocial",
+        "postId": "116676087445077253"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/06/01/116676087445077253/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/06/01/116676087445077253/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116676087445077253",
+      "summary": "Talks are continuing, at a rapid pace, with the Islamic Republic of Iran. Thank you for your attention to this matter! President DONALD J. TRUMP",
+      "title": "Talks are continuing, at a rapid pace, with the Islamic Republic of Iran. Thank you for yo..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:f81af29b1b9d8dce",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-01T20:00:52.346404+00:00",
+        "mediaFiles": [
+          "media/01_video_2061474270023233536.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061479947659550864"
+      },
+      "metadataPath": "X/POTUS/2026/06/01/2061479947659550864/README.md",
+      "path": "X/POTUS/2026/06/01/2061479947659550864/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2061479947659550864",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: Newark or anywhere in America, the message doesn\u2019t change: @ICEgov ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:2e363fbc9addce82",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-01T20:00:52.346310+00:00",
+        "mediaFiles": [
+          "media/01_image_2061493999324532737.jpg"
+        ],
+        "platform": "X",
+        "postId": "2061500368354213969"
+      },
+      "metadataPath": "X/POTUS/2026/06/01/2061500368354213969/README.md",
+      "path": "X/POTUS/2026/06/01/2061500368354213969/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2061500368354213969",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: FIVE MONTHS IN A ROW: U.S. Manufacturing Expands. American Manufact..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:5d6d89ae89ef1d27",
+      "kind": "social_post",
+      "metadata": {
+        "account": "POTUS",
+        "accountDisplayName": "President Donald J. Trump",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-01T19:47:42.366352+00:00",
+        "mediaFiles": [
+          "media/01_image_2061503198142103552.jpg"
+        ],
+        "platform": "X",
+        "postId": "2061505418002657292"
+      },
+      "metadataPath": "X/POTUS/2026/06/01/2061505418002657292/README.md",
+      "path": "X/POTUS/2026/06/01/2061505418002657292/POST.md",
+      "sourceUrl": "https://x.com/POTUS/status/2061505418002657292",
+      "summary": "Repost of @WhiteHouse:",
+      "title": "Repost of @WhiteHouse: \"I had a very productive call with Prime Minister Bibi Netanyahu, o..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:3312c7df6097690d",
+      "kind": "social_post",
+      "metadata": {
+        "account": "VP",
+        "accountDisplayName": "Vice President JD Vance",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-01T20:01:02.334751+00:00",
+        "mediaFiles": [
+          "media/01_image_2061424942193786880.jpg",
+          "media/02_image_2061424956634742784.jpg",
+          "media/03_image_2061424977656664064.jpg",
+          "media/04_image_2061425019226320896.jpg"
+        ],
+        "platform": "X",
+        "postId": "2061428933824774450"
+      },
+      "metadataPath": "X/VP/2026/06/01/2061428933824774450/README.md",
+      "path": "X/VP/2026/06/01/2061428933824774450/POST.md",
+      "sourceUrl": "https://x.com/VP/status/2061428933824774450",
+      "summary": "Repost of @WHFraudTF:",
+      "title": "Repost of @WHFraudTF: \ud83d\udcf8of last week's anti-fraud roundtable with Attorneys General from ar..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:41195e3a036708b1",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-01T19:47:44.061668+00:00",
+        "mediaFiles": [],
+        "platform": "X",
+        "postId": "2061521639490109495"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/01/2061521639490109495/README.md",
+      "path": "X/RapidResponse47/2026/06/01/2061521639490109495/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2061521639490109495",
+      "summary": "Repost of @TaylorRogers47:",
+      "title": "Repost of @TaylorRogers47: \ud83d\udea8In just 14 months, @POTUS &amp; @SecretaryBurgum have Made DC ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:8a1ebac5fff09424",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-01T20:00:56.247484+00:00",
+        "mediaFiles": [
+          "media/01_image_2061516676022099968.jpg"
+        ],
+        "platform": "X",
+        "postId": "2061536095729262641"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/01/2061536095729262641/README.md",
+      "path": "X/RapidResponse47/2026/06/01/2061536095729262641/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2061536095729262641",
+      "summary": "Repost of @SecretaryBurgum:",
+      "title": "Repost of @SecretaryBurgum: The Reflecting Pool is now 100% coated with American Flag Blue..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:4d3ffe4c76fad703",
+      "kind": "social_post",
+      "metadata": {
+        "account": "VP",
+        "accountDisplayName": "Vice President JD Vance",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-01T19:47:47.636364+00:00",
+        "mediaFiles": [],
+        "platform": "X",
+        "postId": "2061519824426074270"
+      },
+      "metadataPath": "X/VP/2026/06/01/2061519824426074270/README.md",
+      "path": "X/VP/2026/06/01/2061519824426074270/POST.md",
+      "sourceUrl": "https://x.com/VP/status/2061519824426074270",
+      "summary": "Repost of @JDVance:",
+      "title": "Repost of @JDVance: Usha's Summer Reading Challenge was a hit last year, and I'm so proud ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:12afa3603716e720",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "repost",
+        "dateAccessed": "2026-06-01T19:47:49.273386+00:00",
+        "mediaFiles": [],
+        "platform": "X",
+        "postId": "2061534126977556608"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/01/2061534126977556608/README.md",
+      "path": "X/WhiteHouse/2026/06/01/2061534126977556608/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2061534126977556608",
+      "summary": "Repost of @DHSgov:",
+      "title": "Repost of @DHSgov: WATCH: Sec. Mullin Holds Press Conference Honoring Several Heroes from ..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:2eb0b3b994b92747",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-01T20:00:30.197276+00:00",
+        "mediaFiles": [
+          "media/01_image_2061522841267245057.jpg"
+        ],
+        "platform": "X",
+        "postId": "2061523159442960883"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/01/2061523159442960883/README.md",
+      "path": "X/WhiteHouse/2026/06/01/2061523159442960883/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2061523159442960883",
+      "summary": "Rampant fraud is being identified, prosecuted, and extinguished across America under the Trump Administration. https://t.co/HiGbWpKzQV",
+      "title": "Rampant fraud is being identified, prosecuted, and extinguished across America under the T..."
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:36461dd0594d9875",
+      "kind": "social_post",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-01T20:00:30.197385+00:00",
+        "mediaFiles": [
+          "media/01_image_2061504545327394816.png"
+        ],
+        "platform": "X",
+        "postId": "2061504686306267430"
+      },
+      "metadataPath": "X/WhiteHouse/2026/06/01/2061504686306267430/README.md",
+      "path": "X/WhiteHouse/2026/06/01/2061504686306267430/POST.md",
+      "sourceUrl": "https://x.com/WhiteHouse/status/2061504686306267430",
+      "summary": "President Trump on talks continuing with Iran: https://t.co/jvBfO5p0V0",
+      "title": "President Trump on talks continuing with Iran: https://t.co/jvBfO5p0V0"
+    },
+    {
+      "category": "YouTube",
+      "date": "2026-06-01",
+      "id": "socials:aecfb70422cd13d1",
+      "kind": "youtube_transcript",
+      "metadata": {
+        "account": "WhiteHouse",
+        "accountDisplayName": "The White House",
+        "contentKind": "youtube_video",
+        "dateAccessed": "2026-06-01T19:47:55.844480+00:00",
+        "mediaFiles": [],
+        "platform": "YouTube",
+        "postId": "cB33RBpFKA4"
+      },
+      "metadataPath": "YouTube/WhiteHouse/2026/06/01/cB33RBpFKA4/README.md",
+      "path": "YouTube/WhiteHouse/2026/06/01/cB33RBpFKA4/TRANSCRIPT.md",
+      "sourceUrl": "https://www.youtube.com/shorts/cB33RBpFKA4",
+      "summary": "- [00:04.720] So, I asked the cop if anyone there - [00:08.880] was no - [00:40.960] I'm a part of the village.",
+      "title": "Newark or anywhere in America, the message doesn\u2019t change: ICE operations will NOT be deterred"
+    },
+    {
+      "category": "X",
+      "date": "2026-06-01",
+      "id": "socials:aacd1c8b67a6aeba",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RapidResponse47",
+        "accountDisplayName": "Rapid Response 47",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-01T20:00:56.247676+00:00",
+        "mediaFiles": [],
+        "platform": "X",
+        "postId": "2061520562443202662"
+      },
+      "metadataPath": "X/RapidResponse47/2026/06/01/2061520562443202662/README.md",
+      "path": "X/RapidResponse47/2026/06/01/2061520562443202662/POST.md",
+      "sourceUrl": "https://x.com/RapidResponse47/status/2061520562443202662",
+      "summary": "\"President Donald Trump\u2019s administration set out to clean up Washington, D.C., 14 months ago, and since have repaired 22 fountains, 28 statues, and made various other improvements to the nation\u2019s capital, the Daily Caller learned.\" https://t.co/CpdvRultYh",
+      "title": "\"President Donald Trump\u2019s administration set out to clean up Washington, D.C., 14 months a..."
+    },
+    {
+      "category": "TruthSocial",
+      "date": "2026-05-31",
+      "id": "socials:82f542d96e658529",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-01T18:51:21.992949+00:00",
+        "mediaFiles": [
+          "media/01_image_116670474885624176.jpg"
+        ],
+        "platform": "TruthSocial",
+        "postId": "116670475090172621"
+      },
+      "metadataPath": "TruthSocial/RealDonaldTrump/2026/05/31/116670475090172621/README.md",
+      "path": "TruthSocial/RealDonaldTrump/2026/05/31/116670475090172621/POST.md",
+      "sourceUrl": "https://truthsocial.com/@realDonaldTrump/116670475090172621",
+      "summary": null,
+      "title": "Truth Social post 116670475090172621"
+    },
+    {
+      "category": "X",
+      "date": "2026-05-31",
+      "id": "socials:65aa278398589b93",
+      "kind": "social_post",
+      "metadata": {
+        "account": "VP",
+        "accountDisplayName": "Vice President JD Vance",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-01T20:01:02.334787+00:00",
+        "mediaFiles": [
+          "media/01_video_2061143320898772993.mp4"
+        ],
+        "platform": "X",
+        "postId": "2061143719626096927"
+      },
+      "metadataPath": "X/VP/2026/05/31/2061143719626096927/README.md",
+      "path": "X/VP/2026/05/31/2061143719626096927/POST.md",
+      "sourceUrl": "https://x.com/VP/status/2061143719626096927",
+      "summary": "Last week, Vice President Vance invited Attorneys General from across the country to participate in a roundtable on combatting fraud.",
+      "title": "Last week, Vice President Vance invited Attorneys General from across the country to parti..."
+    },
+    {
+      "category": "X",
+      "date": "2026-05-22",
+      "id": "socials:eab08c0f1315cad9",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-01T19:47:45.538312+00:00",
+        "mediaFiles": [
+          "media/01_video_2057968142433837056.mp4"
+        ],
+        "platform": "X",
+        "postId": "2057968277062582378"
+      },
+      "metadataPath": "X/RealDonaldTrump/2026/05/22/2057968277062582378/README.md",
+      "path": "X/RealDonaldTrump/2026/05/22/2057968277062582378/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/2057968277062582378",
+      "summary": "https://t.co/LU644jFVH2",
+      "title": "https://t.co/LU644jFVH2"
+    },
+    {
+      "category": "X",
+      "date": "2026-05-19",
+      "id": "socials:8b7a857289eb4218",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-01T20:00:58.398778+00:00",
+        "mediaFiles": [],
+        "platform": "X",
+        "postId": "2056827052851105947"
+      },
+      "metadataPath": "X/RealDonaldTrump/2026/05/19/2056827052851105947/README.md",
+      "path": "X/RealDonaldTrump/2026/05/19/2056827052851105947/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/2056827052851105947",
+      "summary": "Horrible Congressman Thomas Massie put out an old Endorsement, from many years ago, of him by me long before I found out that he was the Worst Congressman in the History of our Country. I endorsed Ed Gallrein, a true American Patriot, which Massie knows full well, so the statemen",
+      "title": "Horrible Congressman Thomas Massie put out an old Endorsement, from many years ago, of him..."
+    },
+    {
+      "category": "X",
+      "date": "2026-03-02",
+      "id": "socials:accf495186cc42be",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "Donald J. Trump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-01T20:00:58.398814+00:00",
+        "mediaFiles": [
+          "media/01_video_2028504808265744385.mp4"
+        ],
+        "platform": "X",
+        "postId": "2028505632123326484"
+      },
+      "metadataPath": "X/RealDonaldTrump/2026/03/02/2028505632123326484/README.md",
+      "path": "X/RealDonaldTrump/2026/03/02/2028505632123326484/POST.md",
+      "sourceUrl": "https://x.com/RealDonaldTrump/status/2028505632123326484",
+      "summary": "https://t.co/uAxTGrJisv",
+      "title": "https://t.co/uAxTGrJisv"
+    }
+  ],
+  "source": "socials",
+  "version": 1
+}
