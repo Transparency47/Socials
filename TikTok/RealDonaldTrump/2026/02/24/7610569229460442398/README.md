@@ -8,7 +8,7 @@
 - Post URL: https://www.tiktok.com/@RealDonaldTrump/video/7610569229460442398
 - Title: I HAVE THE BEST SECRETARY OF DEFENSE
 - Date published: 2026-02-24T22:55:51+00:00
-- Date accessed: 2026-06-01T21:13:59.491540+00:00
+- Date accessed: 2026-06-01T22:09:20.335331+00:00
 - Content kind: post
 
 ## Metrics
@@ -23,10 +23,10 @@
 ### Attachment 1: video
 - Source URL: https://www.tiktok.com/@RealDonaldTrump/video/7610569229460442398
 - Local file: media/01_video_7610569229460442398.mp4
-- Content type: video/mp4
-- Duration ms: 12000
 - Remote URL: https://cdn.comparify.app/archive/tiktok/realdonaldtrump/7610569229460442398.mp4
 - Remote path: archive/tiktok/realdonaldtrump/7610569229460442398.mp4
+- Content type: video/mp4
+- Duration ms: 12000
 
 
 ## API Data

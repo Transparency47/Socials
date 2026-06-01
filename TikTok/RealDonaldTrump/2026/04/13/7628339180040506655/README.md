@@ -8,7 +8,7 @@
 - Post URL: https://www.tiktok.com/@RealDonaldTrump/video/7628339180040506655
 - Title: THE PEOPLE LOVE NO TAX ON TIPS! 🍟
 - Date published: 2026-04-13T20:12:26+00:00
-- Date accessed: 2026-06-01T21:13:59.491529+00:00
+- Date accessed: 2026-06-01T22:09:20.335301+00:00
 - Content kind: post
 
 ## Metrics
@@ -23,10 +23,10 @@
 ### Attachment 1: video
 - Source URL: https://www.tiktok.com/@RealDonaldTrump/video/7628339180040506655
 - Local file: media/01_video_7628339180040506655.mp4
-- Content type: video/mp4
-- Duration ms: 32000
 - Remote URL: https://cdn.comparify.app/archive/tiktok/realdonaldtrump/7628339180040506655.mp4
 - Remote path: archive/tiktok/realdonaldtrump/7628339180040506655.mp4
+- Content type: video/mp4
+- Duration ms: 32000
 
 
 ## API Data

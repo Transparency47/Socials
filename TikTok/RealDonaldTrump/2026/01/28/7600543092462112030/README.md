@@ -8,7 +8,7 @@
 - Post URL: https://www.tiktok.com/@RealDonaldTrump/video/7600543092462112030
 - Title: MAGA 🤝 Barbz 🇺🇸
 - Date published: 2026-01-28T22:29:16+00:00
-- Date accessed: 2026-06-01T21:13:59.491552+00:00
+- Date accessed: 2026-06-01T22:09:20.335362+00:00
 - Content kind: post
 
 ## Metrics
@@ -23,10 +23,10 @@
 ### Attachment 1: video
 - Source URL: https://www.tiktok.com/@RealDonaldTrump/video/7600543092462112030
 - Local file: media/01_video_7600543092462112030.mp4
-- Content type: video/mp4
-- Duration ms: 14000
 - Remote URL: https://cdn.comparify.app/archive/tiktok/realdonaldtrump/7600543092462112030.mp4
 - Remote path: archive/tiktok/realdonaldtrump/7600543092462112030.mp4
+- Content type: video/mp4
+- Duration ms: 14000
 
 
 ## API Data

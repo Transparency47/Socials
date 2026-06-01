@@ -8,7 +8,7 @@
 - Post URL: https://www.tiktok.com/@RealDonaldTrump/video/7609081967899888927
 - Title: A MESSAGE FROM ONE GOAT TO ANOTHER
 - Date published: 2026-02-20T22:44:34+00:00
-- Date accessed: 2026-06-01T21:13:59.491544+00:00
+- Date accessed: 2026-06-01T22:09:20.335341+00:00
 - Content kind: post
 
 ## Metrics
@@ -23,10 +23,10 @@
 ### Attachment 1: video
 - Source URL: https://www.tiktok.com/@RealDonaldTrump/video/7609081967899888927
 - Local file: media/01_video_7609081967899888927.mp4
-- Content type: video/mp4
-- Duration ms: 28000
 - Remote URL: https://cdn.comparify.app/archive/tiktok/realdonaldtrump/7609081967899888927.mp4
 - Remote path: archive/tiktok/realdonaldtrump/7609081967899888927.mp4
+- Content type: video/mp4
+- Duration ms: 28000
 
 
 ## API Data

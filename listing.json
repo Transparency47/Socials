@@ -1,5 +1,5 @@
 {
-  "generatedAt": "2026-06-01T21:57:51.062278+00:00",
+  "generatedAt": "2026-06-01T22:10:36.009949+00:00",
   "records": [
     {
       "category": "TruthSocial",
@@ -44,7 +44,7 @@
         "account": "WhiteHouse",
         "accountDisplayName": "whitehouse",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T20:56:08.690047+00:00",
+        "dateAccessed": "2026-06-01T22:09:58.559713+00:00",
         "media": [
           {
             "kind": "video",
@@ -52,22 +52,13 @@
             "remotePath": "archive/tiktok/whitehouse/7646499579185171743.mp4",
             "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7646499579185171743",
             "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7646499579185171743.mp4"
-          },
-          {
-            "kind": "image",
-            "localFile": "media/02_image_7646499579185171743_thumbnail.jpg",
-            "remotePath": "archive/tiktok/whitehouse/7646499579185171743-02.jpg",
-            "sourceUrl": null,
-            "url": "https://cdn.comparify.app/archive/tiktok/whitehouse/7646499579185171743-02.jpg"
           }
         ],
         "mediaFiles": [
-          "media/01_video_7646499579185171743.mp4",
-          "media/02_image_7646499579185171743_thumbnail.jpg"
+          "media/01_video_7646499579185171743.mp4"
         ],
         "mediaUrls": [
-          "https://cdn.comparify.app/archive/tiktok/whitehouse/7646499579185171743.mp4",
-          "https://cdn.comparify.app/archive/tiktok/whitehouse/7646499579185171743-02.jpg"
+          "https://cdn.comparify.app/archive/tiktok/whitehouse/7646499579185171743.mp4"
         ],
         "platform": "TikTok",
         "postId": "7646499579185171743"
@@ -528,7 +519,7 @@
         "account": "WhiteHouse",
         "accountDisplayName": "whitehouse",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T20:56:08.690062+00:00",
+        "dateAccessed": "2026-06-01T22:09:58.559736+00:00",
         "media": [
           {
             "kind": "video",
@@ -1093,7 +1084,7 @@
         "account": "WhiteHouse",
         "accountDisplayName": "whitehouse",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T20:56:08.690070+00:00",
+        "dateAccessed": "2026-06-01T22:09:58.559750+00:00",
         "media": [
           {
             "kind": "video",
@@ -1636,7 +1627,7 @@
         "account": "WhiteHouse",
         "accountDisplayName": "whitehouse",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T20:56:08.690076+00:00",
+        "dateAccessed": "2026-06-01T22:09:58.559764+00:00",
         "media": [
           {
             "kind": "video",
@@ -1670,7 +1661,7 @@
         "account": "WhiteHouse",
         "accountDisplayName": "whitehouse",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T20:56:08.690081+00:00",
+        "dateAccessed": "2026-06-01T22:09:58.559776+00:00",
         "media": [
           {
             "kind": "video",
@@ -1704,7 +1695,7 @@
         "account": "WhiteHouse",
         "accountDisplayName": "whitehouse",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T20:56:08.690085+00:00",
+        "dateAccessed": "2026-06-01T22:09:58.559785+00:00",
         "media": [
           {
             "kind": "video",
@@ -1738,7 +1729,7 @@
         "account": "WhiteHouse",
         "accountDisplayName": "whitehouse",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T20:56:08.690100+00:00",
+        "dateAccessed": "2026-06-01T22:09:58.559829+00:00",
         "media": [
           {
             "kind": "video",
@@ -1772,7 +1763,7 @@
         "account": "WhiteHouse",
         "accountDisplayName": "whitehouse",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T20:56:08.690089+00:00",
+        "dateAccessed": "2026-06-01T22:09:58.559797+00:00",
         "media": [
           {
             "kind": "video",
@@ -1806,7 +1797,7 @@
         "account": "WhiteHouse",
         "accountDisplayName": "whitehouse",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T20:56:08.690093+00:00",
+        "dateAccessed": "2026-06-01T22:09:58.559808+00:00",
         "media": [
           {
             "kind": "video",
@@ -1840,7 +1831,7 @@
         "account": "WhiteHouse",
         "accountDisplayName": "whitehouse",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T20:56:08.690097+00:00",
+        "dateAccessed": "2026-06-01T22:09:58.559819+00:00",
         "media": [
           {
             "kind": "video",
@@ -1874,7 +1865,7 @@
         "account": "WhiteHouse",
         "accountDisplayName": "whitehouse",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T20:56:08.690113+00:00",
+        "dateAccessed": "2026-06-01T22:09:58.559863+00:00",
         "media": [
           {
             "kind": "video",
@@ -1908,7 +1899,7 @@
         "account": "WhiteHouse",
         "accountDisplayName": "whitehouse",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T20:56:08.690109+00:00",
+        "dateAccessed": "2026-06-01T22:09:58.559851+00:00",
         "media": [
           {
             "kind": "video",
@@ -1942,7 +1933,7 @@
         "account": "RealDonaldTrump",
         "accountDisplayName": "realdonaldtrump",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T21:13:59.491486+00:00",
+        "dateAccessed": "2026-06-01T22:09:20.335195+00:00",
         "media": [
           {
             "kind": "video",
@@ -1976,7 +1967,7 @@
         "account": "WhiteHouse",
         "accountDisplayName": "whitehouse",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T20:56:08.690105+00:00",
+        "dateAccessed": "2026-06-01T22:09:58.559840+00:00",
         "media": [
           {
             "kind": "video",
@@ -2010,7 +2001,7 @@
         "account": "WhiteHouse",
         "accountDisplayName": "whitehouse",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T20:56:08.690117+00:00",
+        "dateAccessed": "2026-06-01T22:09:58.559874+00:00",
         "media": [
           {
             "kind": "video",
@@ -2044,7 +2035,7 @@
         "account": "WhiteHouse",
         "accountDisplayName": "whitehouse",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T20:56:08.690121+00:00",
+        "dateAccessed": "2026-06-01T22:09:58.559883+00:00",
         "media": [
           {
             "kind": "video",
@@ -2078,7 +2069,7 @@
         "account": "WhiteHouse",
         "accountDisplayName": "whitehouse",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T20:56:08.690127+00:00",
+        "dateAccessed": "2026-06-01T22:09:58.559897+00:00",
         "media": [
           {
             "kind": "video",
@@ -2112,7 +2103,7 @@
         "account": "WhiteHouse",
         "accountDisplayName": "whitehouse",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T20:56:08.690130+00:00",
+        "dateAccessed": "2026-06-01T22:09:58.559906+00:00",
         "media": [
           {
             "kind": "video",
@@ -2146,7 +2137,7 @@
         "account": "RealDonaldTrump",
         "accountDisplayName": "realdonaldtrump",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T21:13:59.491500+00:00",
+        "dateAccessed": "2026-06-01T22:09:20.335227+00:00",
         "media": [
           {
             "kind": "video",
@@ -2180,7 +2171,7 @@
         "account": "WhiteHouse",
         "accountDisplayName": "whitehouse",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T20:56:08.690134+00:00",
+        "dateAccessed": "2026-06-01T22:09:58.559915+00:00",
         "media": [
           {
             "kind": "video",
@@ -2214,7 +2205,7 @@
         "account": "WhiteHouse",
         "accountDisplayName": "whitehouse",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T20:56:08.690137+00:00",
+        "dateAccessed": "2026-06-01T22:09:58.559924+00:00",
         "media": [
           {
             "kind": "video",
@@ -2248,7 +2239,7 @@
         "account": "WhiteHouse",
         "accountDisplayName": "whitehouse",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T20:56:08.690140+00:00",
+        "dateAccessed": "2026-06-01T22:09:58.559932+00:00",
         "media": [
           {
             "kind": "video",
@@ -2588,7 +2579,7 @@
         "account": "RealDonaldTrump",
         "accountDisplayName": "realdonaldtrump",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T21:13:59.491509+00:00",
+        "dateAccessed": "2026-06-01T22:09:20.335248+00:00",
         "media": [
           {
             "kind": "video",
@@ -2746,7 +2737,7 @@
         "account": "RealDonaldTrump",
         "accountDisplayName": "realdonaldtrump",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T21:13:59.491514+00:00",
+        "dateAccessed": "2026-06-01T22:09:20.335261+00:00",
         "media": [
           {
             "kind": "video",
@@ -3052,7 +3043,7 @@
         "account": "RealDonaldTrump",
         "accountDisplayName": "realdonaldtrump",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T21:13:59.491519+00:00",
+        "dateAccessed": "2026-06-01T22:09:20.335274+00:00",
         "media": [
           {
             "kind": "video",
@@ -4378,7 +4369,7 @@
         "account": "RealDonaldTrump",
         "accountDisplayName": "realdonaldtrump",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T21:13:59.491524+00:00",
+        "dateAccessed": "2026-06-01T22:09:20.335286+00:00",
         "media": [
           {
             "kind": "video",
@@ -5806,7 +5797,7 @@
         "account": "RealDonaldTrump",
         "accountDisplayName": "realdonaldtrump",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T21:13:59.491529+00:00",
+        "dateAccessed": "2026-06-01T22:09:20.335301+00:00",
         "media": [
           {
             "kind": "video",
@@ -6078,7 +6069,7 @@
         "account": "RealDonaldTrump",
         "accountDisplayName": "realdonaldtrump",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T21:13:59.491533+00:00",
+        "dateAccessed": "2026-06-01T22:09:20.335312+00:00",
         "media": [
           {
             "kind": "video",
@@ -7472,7 +7463,7 @@
         "account": "RealDonaldTrump",
         "accountDisplayName": "realdonaldtrump",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T21:13:59.491537+00:00",
+        "dateAccessed": "2026-06-01T22:09:20.335321+00:00",
         "media": [
           {
             "kind": "video",
@@ -10906,7 +10897,7 @@
         "account": "RealDonaldTrump",
         "accountDisplayName": "realdonaldtrump",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T21:13:59.491540+00:00",
+        "dateAccessed": "2026-06-01T22:09:20.335331+00:00",
         "media": [
           {
             "kind": "video",
@@ -11382,7 +11373,7 @@
         "account": "RealDonaldTrump",
         "accountDisplayName": "realdonaldtrump",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T21:13:59.491544+00:00",
+        "dateAccessed": "2026-06-01T22:09:20.335341+00:00",
         "media": [
           {
             "kind": "video",
@@ -12640,7 +12631,7 @@
         "account": "RealDonaldTrump",
         "accountDisplayName": "realdonaldtrump",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T21:13:59.491549+00:00",
+        "dateAccessed": "2026-06-01T22:09:20.335352+00:00",
         "media": [
           {
             "kind": "video",
@@ -13082,7 +13073,7 @@
         "account": "RealDonaldTrump",
         "accountDisplayName": "realdonaldtrump",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T21:13:59.491552+00:00",
+        "dateAccessed": "2026-06-01T22:09:20.335362+00:00",
         "media": [
           {
             "kind": "video",
@@ -21650,7 +21641,7 @@
         "account": "RealDonaldTrump",
         "accountDisplayName": "realdonaldtrump",
         "contentKind": "post",
-        "dateAccessed": "2026-06-01T21:13:59.491555+00:00",
+        "dateAccessed": "2026-06-01T22:09:20.335371+00:00",
         "media": [
           {
             "kind": "video",
@@ -27522,6 +27513,210 @@
       "sourceUrl": "https://www.tiktok.com/@WhiteHouse/video/7540412027907362062",
       "summary": "America we are BACK! What\u2019s up TikTok?",
       "title": "America we are BACK! What\u2019s up TikTok?"
+    },
+    {
+      "category": "TikTok",
+      "date": "2024-11-05",
+      "id": "socials:4e31d3e80a51c34c",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "realdonaldtrump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-01T22:09:20.335382+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7433870905635409198.mp4",
+            "remotePath": "archive/tiktok/realdonaldtrump/7433870905635409198.mp4",
+            "sourceUrl": "https://www.tiktok.com/@RealDonaldTrump/video/7433870905635409198",
+            "url": "https://cdn.comparify.app/archive/tiktok/realdonaldtrump/7433870905635409198.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7433870905635409198.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/realdonaldtrump/7433870905635409198.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7433870905635409198"
+      },
+      "metadataPath": "TikTok/RealDonaldTrump/2024/11/05/7433870905635409198/README.md",
+      "path": "TikTok/RealDonaldTrump/2024/11/05/7433870905635409198/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@RealDonaldTrump/video/7433870905635409198",
+      "summary": "TODAY IS THE DAY \u2014 GET OUT AND VOTE!",
+      "title": "TODAY IS THE DAY \u2014 GET OUT AND VOTE!"
+    },
+    {
+      "category": "TikTok",
+      "date": "2024-11-05",
+      "id": "socials:2a3fea9acb559d92",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "realdonaldtrump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-01T22:09:20.335401+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7433620706157497646.mp4",
+            "remotePath": "archive/tiktok/realdonaldtrump/7433620706157497646.mp4",
+            "sourceUrl": "https://www.tiktok.com/@RealDonaldTrump/video/7433620706157497646",
+            "url": "https://cdn.comparify.app/archive/tiktok/realdonaldtrump/7433620706157497646.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7433620706157497646.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/realdonaldtrump/7433620706157497646.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7433620706157497646"
+      },
+      "metadataPath": "TikTok/RealDonaldTrump/2024/11/05/7433620706157497646/README.md",
+      "path": "TikTok/RealDonaldTrump/2024/11/05/7433620706157497646/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@RealDonaldTrump/video/7433620706157497646",
+      "summary": "THANK YOU, JOE \u2014 GREAT HONOR!",
+      "title": "THANK YOU, JOE \u2014 GREAT HONOR!"
+    },
+    {
+      "category": "TikTok",
+      "date": "2024-11-05",
+      "id": "socials:5489a38c1b762d32",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "realdonaldtrump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-01T22:09:20.335391+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7433682490071452970.mp4",
+            "remotePath": "archive/tiktok/realdonaldtrump/7433682490071452970.mp4",
+            "sourceUrl": "https://www.tiktok.com/@RealDonaldTrump/video/7433682490071452970",
+            "url": "https://cdn.comparify.app/archive/tiktok/realdonaldtrump/7433682490071452970.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7433682490071452970.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/realdonaldtrump/7433682490071452970.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7433682490071452970"
+      },
+      "metadataPath": "TikTok/RealDonaldTrump/2024/11/05/7433682490071452970/README.md",
+      "path": "TikTok/RealDonaldTrump/2024/11/05/7433682490071452970/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@RealDonaldTrump/video/7433682490071452970",
+      "summary": "THANK YOU MEGYN KELLY, GREAT HONOR!",
+      "title": "THANK YOU MEGYN KELLY, GREAT HONOR!"
+    },
+    {
+      "category": "TikTok",
+      "date": "2024-11-04",
+      "id": "socials:1283b86415ced1c3",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "realdonaldtrump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-01T22:09:20.335411+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7433546039254142250.mp4",
+            "remotePath": "archive/tiktok/realdonaldtrump/7433546039254142250.mp4",
+            "sourceUrl": "https://www.tiktok.com/@RealDonaldTrump/video/7433546039254142250",
+            "url": "https://cdn.comparify.app/archive/tiktok/realdonaldtrump/7433546039254142250.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7433546039254142250.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/realdonaldtrump/7433546039254142250.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7433546039254142250"
+      },
+      "metadataPath": "TikTok/RealDonaldTrump/2024/11/04/7433546039254142250/README.md",
+      "path": "TikTok/RealDonaldTrump/2024/11/04/7433546039254142250/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@RealDonaldTrump/video/7433546039254142250",
+      "summary": "TIME TO LIVE THE AMERICAN DREAM",
+      "title": "TIME TO LIVE THE AMERICAN DREAM"
+    },
+    {
+      "category": "TikTok",
+      "date": "2024-11-04",
+      "id": "socials:aa4681386586b13f",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "realdonaldtrump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-01T22:09:20.335420+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7433207554638892331.mp4",
+            "remotePath": "archive/tiktok/realdonaldtrump/7433207554638892331.mp4",
+            "sourceUrl": "https://www.tiktok.com/@RealDonaldTrump/video/7433207554638892331",
+            "url": "https://cdn.comparify.app/archive/tiktok/realdonaldtrump/7433207554638892331.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7433207554638892331.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/realdonaldtrump/7433207554638892331.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7433207554638892331"
+      },
+      "metadataPath": "TikTok/RealDonaldTrump/2024/11/04/7433207554638892331/README.md",
+      "path": "TikTok/RealDonaldTrump/2024/11/04/7433207554638892331/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@RealDonaldTrump/video/7433207554638892331",
+      "summary": "I\u2019LL PUT AMERICA FIRST!",
+      "title": "I\u2019LL PUT AMERICA FIRST!"
+    },
+    {
+      "category": "TikTok",
+      "date": "2024-11-02",
+      "id": "socials:58538801c437282b",
+      "kind": "social_post",
+      "metadata": {
+        "account": "RealDonaldTrump",
+        "accountDisplayName": "realdonaldtrump",
+        "contentKind": "post",
+        "dateAccessed": "2026-06-01T22:09:20.335430+00:00",
+        "media": [
+          {
+            "kind": "video",
+            "localFile": "media/01_video_7432520023958146335.mp4",
+            "remotePath": "archive/tiktok/realdonaldtrump/7432520023958146335.mp4",
+            "sourceUrl": "https://www.tiktok.com/@RealDonaldTrump/video/7432520023958146335",
+            "url": "https://cdn.comparify.app/archive/tiktok/realdonaldtrump/7432520023958146335.mp4"
+          }
+        ],
+        "mediaFiles": [
+          "media/01_video_7432520023958146335.mp4"
+        ],
+        "mediaUrls": [
+          "https://cdn.comparify.app/archive/tiktok/realdonaldtrump/7432520023958146335.mp4"
+        ],
+        "platform": "TikTok",
+        "postId": "7432520023958146335"
+      },
+      "metadataPath": "TikTok/RealDonaldTrump/2024/11/02/7432520023958146335/README.md",
+      "path": "TikTok/RealDonaldTrump/2024/11/02/7432520023958146335/POST.md",
+      "sourceUrl": "https://www.tiktok.com/@RealDonaldTrump/video/7432520023958146335",
+      "summary": "CLOSE THE BORDER FOR A BETTER FUTURE",
+      "title": "CLOSE THE BORDER FOR A BETTER FUTURE"
     }
   ],
   "source": "socials",

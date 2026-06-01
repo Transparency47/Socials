@@ -8,13 +8,13 @@
 - Post URL: https://www.tiktok.com/@RealDonaldTrump/video/7642894249133935902
 - Title: TikTok post 7642894249133935902
 - Date published: 2026-05-23T01:33:15+00:00
-- Date accessed: 2026-06-01T21:13:59.491500+00:00
+- Date accessed: 2026-06-01T22:09:20.335227+00:00
 - Content kind: post
 
 ## Metrics
 
 - comments: 18200
-- likes: 268200
+- likes: 268300
 - reposts: 79800
 - views: 4200000
 
@@ -23,10 +23,10 @@
 ### Attachment 1: video
 - Source URL: https://www.tiktok.com/@RealDonaldTrump/video/7642894249133935902
 - Local file: media/01_video_7642894249133935902.mp4
-- Content type: video/mp4
-- Duration ms: 22000
 - Remote URL: https://cdn.comparify.app/archive/tiktok/realdonaldtrump/7642894249133935902.mp4
 - Remote path: archive/tiktok/realdonaldtrump/7642894249133935902.mp4
+- Content type: video/mp4
+- Duration ms: 22000
 
 
 ## API Data
@@ -40,7 +40,7 @@
     "description": "",
     "duration": 22,
     "id": "7642894249133935902",
-    "like_count": 268200,
+    "like_count": 268300,
     "repost_count": 79800,
     "timestamp": 1779499995,
     "title": "",

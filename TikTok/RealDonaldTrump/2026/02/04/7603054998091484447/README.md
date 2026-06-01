@@ -8,13 +8,13 @@
 - Post URL: https://www.tiktok.com/@RealDonaldTrump/video/7603054998091484447
 - Title: MY PICK TO WIN SUPER BOWL LX IS…
 - Date published: 2026-02-04T16:56:43+00:00
-- Date accessed: 2026-06-01T21:13:59.491549+00:00
+- Date accessed: 2026-06-01T22:09:20.335352+00:00
 - Content kind: post
 
 ## Metrics
 
 - comments: 34300
-- likes: 412800
+- likes: 412900
 - reposts: 15200
 - views: 15300000
 
@@ -23,10 +23,10 @@
 ### Attachment 1: video
 - Source URL: https://www.tiktok.com/@RealDonaldTrump/video/7603054998091484447
 - Local file: media/01_video_7603054998091484447.mp4
-- Content type: video/mp4
-- Duration ms: 19000
 - Remote URL: https://cdn.comparify.app/archive/tiktok/realdonaldtrump/7603054998091484447.mp4
 - Remote path: archive/tiktok/realdonaldtrump/7603054998091484447.mp4
+- Content type: video/mp4
+- Duration ms: 19000
 
 
 ## API Data
@@ -40,7 +40,7 @@
     "description": "MY PICK TO WIN SUPER BOWL LX IS…",
     "duration": 19,
     "id": "7603054998091484447",
-    "like_count": 412800,
+    "like_count": 412900,
     "repost_count": 15200,
     "timestamp": 1770224203,
     "title": "MY PICK TO WIN SUPER BOWL LX IS…",

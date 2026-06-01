@@ -8,25 +8,25 @@
 - Post URL: https://www.tiktok.com/@WhiteHouse/video/7644300227637284110
 - Title: Protecting YOUR taxpayer dollars 🇺🇸🇺🇸
 - Date published: 2026-05-26T20:29:38+00:00
-- Date accessed: 2026-06-01T20:56:08.690117+00:00
+- Date accessed: 2026-06-01T22:09:58.559874+00:00
 - Content kind: post
 
 ## Metrics
 
-- comments: 1439
+- comments: 1447
 - likes: 14800
-- reposts: 629
-- views: 493000
+- reposts: 630
+- views: 494100
 
 ## Media Attachments
 
 ### Attachment 1: video
 - Source URL: https://www.tiktok.com/@WhiteHouse/video/7644300227637284110
 - Local file: media/01_video_7644300227637284110.mp4
-- Content type: video/mp4
-- Duration ms: 66000
 - Remote URL: https://cdn.comparify.app/archive/tiktok/whitehouse/7644300227637284110.mp4
 - Remote path: archive/tiktok/whitehouse/7644300227637284110.mp4
+- Content type: video/mp4
+- Duration ms: 66000
 
 
 ## API Data
@@ -36,17 +36,17 @@
   "post": {
     "channel": "The White House",
     "channel_id": "MS4wLjABAAAAo6Jiczys2MyORMi_kg6kADoMivJpOFKrEhQ1MVO2pTDvcFzn6qgB3HPA051jiK9E",
-    "comment_count": 1439,
+    "comment_count": 1447,
     "description": "Protecting YOUR taxpayer dollars 🇺🇸🇺🇸",
     "duration": 66,
     "id": "7644300227637284110",
     "like_count": 14800,
-    "repost_count": 629,
+    "repost_count": 630,
     "timestamp": 1779827378,
     "title": "Protecting YOUR taxpayer dollars 🇺🇸🇺🇸",
     "uploader": "whitehouse",
     "uploader_id": "7540322525356999735",
-    "view_count": 493000
+    "view_count": 494100
   }
 }
 ```

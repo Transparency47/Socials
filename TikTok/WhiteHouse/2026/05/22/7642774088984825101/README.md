@@ -8,13 +8,13 @@
 - Post URL: https://www.tiktok.com/@WhiteHouse/video/7642774088984825101
 - Title: 🇺🇸🇺🇸🇺🇸🇺🇸
 - Date published: 2026-05-22T17:47:19+00:00
-- Date accessed: 2026-06-01T20:56:08.690140+00:00
+- Date accessed: 2026-06-01T22:09:58.559932+00:00
 - Content kind: post
 
 ## Metrics
 
 - comments: 2586
-- likes: 365900
+- likes: 366000
 - reposts: 13800
 - views: 2200000
 
@@ -23,10 +23,10 @@
 ### Attachment 1: video
 - Source URL: https://www.tiktok.com/@WhiteHouse/video/7642774088984825101
 - Local file: media/01_video_7642774088984825101.mp4
-- Content type: video/mp4
-- Duration ms: 27000
 - Remote URL: https://cdn.comparify.app/archive/tiktok/whitehouse/7642774088984825101.mp4
 - Remote path: archive/tiktok/whitehouse/7642774088984825101.mp4
+- Content type: video/mp4
+- Duration ms: 27000
 
 
 ## API Data
@@ -40,7 +40,7 @@
     "description": "🇺🇸🇺🇸🇺🇸🇺🇸",
     "duration": 27,
     "id": "7642774088984825101",
-    "like_count": 365900,
+    "like_count": 366000,
     "repost_count": 13800,
     "timestamp": 1779472039,
     "title": "🇺🇸🇺🇸🇺🇸🇺🇸",

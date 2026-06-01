@@ -8,7 +8,7 @@
 - Post URL: https://www.tiktok.com/@RealDonaldTrump/video/7558116309083475230
 - Title: I SAVED TIKTOK!
 - Date published: 2025-10-06T14:31:59+00:00
-- Date accessed: 2026-06-01T21:13:59.491555+00:00
+- Date accessed: 2026-06-01T22:09:20.335371+00:00
 - Content kind: post
 
 ## Metrics
@@ -23,10 +23,10 @@
 ### Attachment 1: video
 - Source URL: https://www.tiktok.com/@RealDonaldTrump/video/7558116309083475230
 - Local file: media/01_video_7558116309083475230.mp4
-- Content type: video/mp4
-- Duration ms: 14000
 - Remote URL: https://cdn.comparify.app/archive/tiktok/realdonaldtrump/7558116309083475230.mp4
 - Remote path: archive/tiktok/realdonaldtrump/7558116309083475230.mp4
+- Content type: video/mp4
+- Duration ms: 14000
 
 
 ## API Data

@@ -8,14 +8,14 @@
 - Post URL: https://www.tiktok.com/@WhiteHouse/video/7644220207107427598
 - Title: Blessed
 - Date published: 2026-05-26T15:19:11+00:00
-- Date accessed: 2026-06-01T20:56:08.690121+00:00
+- Date accessed: 2026-06-01T22:09:58.559883+00:00
 - Content kind: post
 
 ## Metrics
 
 - comments: 27900
 - likes: 1500000
-- reposts: 905600
+- reposts: 906000
 - views: 15200000
 
 ## Media Attachments
@@ -23,10 +23,10 @@
 ### Attachment 1: video
 - Source URL: https://www.tiktok.com/@WhiteHouse/video/7644220207107427598
 - Local file: media/01_video_7644220207107427598.mp4
-- Content type: video/mp4
-- Duration ms: 9000
 - Remote URL: https://cdn.comparify.app/archive/tiktok/whitehouse/7644220207107427598.mp4
 - Remote path: archive/tiktok/whitehouse/7644220207107427598.mp4
+- Content type: video/mp4
+- Duration ms: 9000
 
 
 ## API Data
@@ -41,7 +41,7 @@
     "duration": 9,
     "id": "7644220207107427598",
     "like_count": 1500000,
-    "repost_count": 905600,
+    "repost_count": 906000,
     "timestamp": 1779808751,
     "title": "Blessed ",
     "uploader": "whitehouse",

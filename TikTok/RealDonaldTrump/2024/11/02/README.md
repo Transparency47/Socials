@@ -1,0 +1,7 @@
+# TikTok / RealDonaldTrump / 2024-11-02
+
+- Posts: 1
+
+- [03:33 UTC - CLOSE THE BORDER FOR A BETTER FUTURE](7432520023958146335/)
+  - Source: https://www.tiktok.com/@RealDonaldTrump/video/7432520023958146335
+  - CLOSE THE BORDER FOR A BETTER FUTURE
