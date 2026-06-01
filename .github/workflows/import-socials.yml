@@ -20,9 +20,16 @@ on:
         required: false
         type: string
       max_items:
-        description: "Maximum posts/videos per account."
+        description: "Optional maximum posts/videos per account. Leave blank so backfill uses the scraper default."
         required: false
-        default: "20"
+        type: string
+      since:
+        description: "Only archive posts/videos published at or after this date/time."
+        required: false
+        type: string
+      until:
+        description: "Only archive posts/videos published at or before this date/time, or 'now'."
+        required: false
         type: string
       force:
         description: "Re-fetch and overwrite known posts."
@@ -69,16 +76,27 @@ jobs:
           MODE: ${{ inputs.mode || 'incremental' }}
           PLATFORM: ${{ inputs.platform }}
           ACCOUNT: ${{ inputs.account }}
-          MAX_ITEMS: ${{ inputs.max_items || '20' }}
+          MAX_ITEMS: ${{ inputs.max_items }}
+          SINCE: ${{ inputs.since }}
+          UNTIL: ${{ inputs.until }}
           FORCE: ${{ inputs.force || false }}
         run: |
           set -euo pipefail
-          args=("--${MODE}" "--max-items" "${MAX_ITEMS}")
+          args=("--${MODE}")
+          if [[ -n "${MAX_ITEMS}" ]]; then
+            args+=("--max-items" "${MAX_ITEMS}")
+          fi
           if [[ -n "${PLATFORM}" ]]; then
             args+=("--platform" "${PLATFORM}")
           fi
           if [[ -n "${ACCOUNT}" ]]; then
             args+=("--account" "${ACCOUNT}")
+          fi
+          if [[ -n "${SINCE}" ]]; then
+            args+=("--since" "${SINCE}")
+          fi
+          if [[ -n "${UNTIL}" ]]; then
+            args+=("--until" "${UNTIL}")
           fi
           if [[ "${FORCE}" == "true" ]]; then
             args+=("--force")

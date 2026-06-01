@@ -348,7 +348,7 @@ def json_block(data: Any) -> str:
 def metadata_line(label: str, value: Any) -> str:
     if value in (None, "", [], {}):
         return ""
-    return f"- {label}: {value}\n"
+    return f"- {label}: {clean_text(str(value))}\n"
 
 
 def format_metrics(metrics: dict[str, Any]) -> str:
@@ -466,7 +466,7 @@ def transcript_markdown(record: ArchiveRecord) -> str:
         "",
     ]
     if record.transcript_error:
-        lines.append(f"_Transcript unavailable: {record.transcript_error}_")
+        lines.append(f"_Transcript unavailable: {clean_text(record.transcript_error)}_")
         lines.append("")
         return "\n".join(lines)
     if not record.transcript:
@@ -559,7 +559,8 @@ def day_readme_markdown(day_dir: Path) -> str:
         lines.append(f"- [{label}]({item['path']}/)")
         if item["url"]:
             lines.append(f"  - Source: {item['url']}")
-        lines.append(f"  - {item['snippet']}")
+        snippet = item["snippet"].removeprefix("- ")
+        lines.append(f"  - {snippet}")
     lines.append("")
     return "\n".join(lines)
 
@@ -752,6 +753,9 @@ def archive_record(session: requests.Session, record: ArchiveRecord, state: dict
     if record.platform != "youtube":
         download_media(session, record, folder, args)
         upload_media_to_r2(record, folder, args)
+    elif record.transcript_error or not record.transcript:
+        reason = clean_text(record.transcript_error or "No transcript entries captured.")
+        raise ScrapeError(f"YouTube transcript is required for {record.url}: {reason}")
 
     wrote = False
     wrote |= write_if_changed(folder / "README.md", readme_markdown(record))
@@ -1532,6 +1536,189 @@ def compact_yt_dlp_info(info: dict[str, Any]) -> dict[str, Any]:
     return {key: info.get(key) for key in keys if key in info}
 
 
+def youtube_channel_page_candidates(account: str) -> list[str]:
+    value = strip_handle(account)
+    bases: list[str] = []
+    if value.startswith("UC"):
+        bases.append(f"https://www.youtube.com/channel/{value}")
+    handle = value if value.startswith("@") else f"@{value}"
+    bases.extend(
+        [
+            f"https://www.youtube.com/{handle}",
+            f"https://www.youtube.com/user/{value}",
+            f"https://www.youtube.com/c/{value}",
+        ]
+    )
+    candidates = [f"{base}/{tab}" for base in dict.fromkeys(bases) for tab in ("videos", "shorts", "streams")]
+    return list(dict.fromkeys(candidates))
+
+
+def youtube_playlist_title(info: dict[str, Any]) -> str | None:
+    title = info.get("channel") or info.get("uploader") or info.get("title")
+    if isinstance(title, str) and title.endswith(" - Videos"):
+        title = title[: -len(" - Videos")]
+    return title
+
+
+def youtube_upload_datetime(info: dict[str, Any]) -> dt.datetime | None:
+    published = parse_datetime(info.get("timestamp")) or parse_datetime(info.get("release_timestamp"))
+    if published:
+        return published
+    upload_date = info.get("upload_date")
+    if isinstance(upload_date, str) and re.fullmatch(r"\d{8}", upload_date):
+        return dt.datetime.strptime(upload_date, "%Y%m%d").replace(tzinfo=dt.timezone.utc)
+    return None
+
+
+def youtube_entry_url(entry: dict[str, Any]) -> str | None:
+    for key in ("webpage_url", "url"):
+        value = entry.get(key)
+        if isinstance(value, str) and value.startswith("http"):
+            return value
+    video_id = entry.get("id")
+    if video_id:
+        return f"https://www.youtube.com/watch?v={video_id}"
+    return None
+
+
+def youtube_record_from_info(
+    info: dict[str, Any],
+    account: str,
+    playlist_info: dict[str, Any],
+    languages: list[str],
+) -> ArchiveRecord | None:
+    video_id = str(info.get("id") or "")
+    if not video_id:
+        return None
+    channel_id = info.get("channel_id") or (playlist_info.get("id") if str(playlist_info.get("id", "")).startswith("UC") else None)
+    channel_title = youtube_playlist_title(info) or youtube_playlist_title(playlist_info)
+    video_url = info.get("webpage_url") or info.get("original_url") or f"https://www.youtube.com/watch?v={video_id}"
+    title = info.get("title") or f"YouTube video {video_id}"
+    description = info.get("description") or ""
+    transcript, transcript_error = transcript_for(video_id, languages, info)
+    return ArchiveRecord(
+        platform="youtube",
+        account=account,
+        account_display_name=channel_title,
+        account_id=channel_id,
+        account_url=info.get("channel_url") or (f"https://www.youtube.com/channel/{channel_id}" if channel_id else None),
+        post_id=video_id,
+        url=video_url,
+        title=title,
+        text=description,
+        published=youtube_upload_datetime(info),
+        accessed=now_utc(),
+        metrics={
+            "views": info.get("view_count"),
+            "likes": info.get("like_count"),
+            "comments": info.get("comment_count"),
+            "duration_seconds": info.get("duration"),
+        },
+        raw={"source": "yt-dlp", "post": compact_yt_dlp_info(info)},
+        content_kind="youtube_video",
+        transcript=transcript,
+        transcript_error=transcript_error,
+    )
+
+
+def fetch_youtube_channel_entries(account: str, args: argparse.Namespace) -> tuple[str, dict[str, Any], list[dict[str, Any]]]:
+    try:
+        import yt_dlp
+    except ImportError as exc:
+        raise ScrapeError("YouTube backfill requires yt-dlp. Install Scraper/requirements.txt.") from exc
+
+    errors: list[str] = []
+    options = {
+        "extract_flat": "in_playlist",
+        "playlistend": args.max_items,
+        "quiet": True,
+        "no_warnings": True,
+        "skip_download": True,
+        "ignoreerrors": True,
+    }
+    merged: dict[str, dict[str, Any]] = {}
+    source_summaries: list[str] = []
+    playlist_info: dict[str, Any] = {}
+    for url in youtube_channel_page_candidates(account):
+        try:
+            with yt_dlp.YoutubeDL(options) as ydl:
+                info = ydl.extract_info(url, download=False)
+        except Exception as exc:
+            errors.append(f"{url}: {type(exc).__name__}: {exc}")
+            continue
+        entries = [entry for entry in (info.get("entries") or []) if entry] if isinstance(info, dict) else []
+        if entries:
+            if not playlist_info and isinstance(info, dict):
+                playlist_info = info
+            source_summaries.append(f"{url} ({len(entries)})")
+            for entry in entries:
+                entry_id = str(entry.get("id") or youtube_entry_url(entry) or "")
+                if entry_id and entry_id not in merged:
+                    entry_copy = dict(entry)
+                    entry_copy["_youtube_source_url"] = url
+                    merged[entry_id] = entry_copy
+            continue
+        errors.append(f"{url}: no entries")
+    if merged:
+        return "; ".join(source_summaries), playlist_info, list(merged.values())
+    raise ScrapeError("Could not fetch YouTube channel videos. " + "; ".join(errors))
+
+
+def scrape_youtube_backfill(session: requests.Session, account: str, args: argparse.Namespace) -> list[ArchiveRecord]:
+    try:
+        import yt_dlp
+    except ImportError as exc:
+        raise ScrapeError("YouTube backfill requires yt-dlp. Install Scraper/requirements.txt.") from exc
+
+    source_url, playlist_info, entries = fetch_youtube_channel_entries(account, args)
+    print(f"Fetched YouTube channel listings from {source_url} ({len(entries)} unique candidates).", flush=True)
+    languages = [part.strip() for part in args.transcript_languages.split(",") if part.strip()]
+    detail_options = {
+        "quiet": True,
+        "no_warnings": True,
+        "skip_download": True,
+        "ignoreerrors": True,
+        "noplaylist": True,
+    }
+    records: list[ArchiveRecord] = []
+    since = getattr(args, "since_dt", None)
+    stopped_sources: set[str] = set()
+    with yt_dlp.YoutubeDL(detail_options) as ydl:
+        for index, entry in enumerate(entries, 1):
+            entry_source = str(entry.get("_youtube_source_url") or "")
+            if entry_source in stopped_sources:
+                continue
+            if args.post_id and str(entry.get("id") or "") != args.post_id:
+                continue
+            video_url = youtube_entry_url(entry)
+            if not video_url:
+                continue
+            video_label = entry.get("id") or video_url
+            print(f"YouTube/{account}: checking {index}/{len(entries)} {video_label}", flush=True)
+            try:
+                info = ydl.extract_info(video_url, download=False)
+            except Exception as exc:
+                print(f"WARNING YouTube/{account}: could not fetch {video_url}: {type(exc).__name__}: {exc}", file=sys.stderr, flush=True)
+                continue
+            if not isinstance(info, dict):
+                continue
+            record = youtube_record_from_info(info, account, playlist_info, languages)
+            if not record:
+                continue
+            if since and record.published and record.published < since:
+                print(f"YouTube/{account}: reached {record.published.date()} on {entry_source}; skipping older items from this tab.", flush=True)
+                if entry_source:
+                    stopped_sources.add(entry_source)
+                continue
+            if in_date_window(record.published, args):
+                print(f"YouTube/{account}: queued {record.post_id} ({record.published.date() if record.published else 'unknown date'})", flush=True)
+                records.append(record)
+                if len(records) >= args.max_items:
+                    break
+            time.sleep(REQUEST_DELAY_SECONDS)
+    return records
+
+
 def scrape_tiktok(session: requests.Session, account: str, args: argparse.Namespace) -> list[ArchiveRecord]:
     username = strip_handle(account)
     try:
@@ -1633,25 +1820,183 @@ def first_text(node: ET.Element, path: str, namespaces: dict[str, str]) -> str |
     return found.text if found is not None else None
 
 
-def transcript_for(video_id: str, languages: list[str]) -> tuple[list[dict[str, Any]] | None, str | None]:
+def json3_caption_entries(payload: dict[str, Any]) -> list[dict[str, Any]]:
+    entries: list[dict[str, Any]] = []
+    for event in payload.get("events") or []:
+        segments = event.get("segs") or []
+        text = "".join(str(segment.get("utf8") or "") for segment in segments)
+        text = clean_text(text.replace("\n", " "))
+        if not text:
+            continue
+        entries.append(
+            {
+                "start": float(event.get("tStartMs") or 0) / 1000.0,
+                "duration": float(event.get("dDurationMs") or 0) / 1000.0,
+                "text": text,
+            }
+        )
+    return entries
+
+
+def caption_time_to_seconds(value: str) -> float:
+    value = value.strip().replace(",", ".")
+    parts = value.split(":")
+    seconds = float(parts[-1])
+    if len(parts) >= 2:
+        seconds += int(parts[-2]) * 60
+    if len(parts) >= 3:
+        seconds += int(parts[-3]) * 3600
+    return seconds
+
+
+def text_caption_entries(body: str) -> list[dict[str, Any]]:
+    entries: list[dict[str, Any]] = []
+    current_start: float | None = None
+    current_duration = 0.0
+    current_lines: list[str] = []
+
+    def flush() -> None:
+        nonlocal current_start, current_duration, current_lines
+        if current_start is None:
+            current_lines = []
+            return
+        text = html.unescape(re.sub(r"<[^>]+>", "", " ".join(current_lines)))
+        text = clean_text(text)
+        if text:
+            entries.append({"start": current_start, "duration": current_duration, "text": text})
+        current_start = None
+        current_duration = 0.0
+        current_lines = []
+
+    for raw_line in body.splitlines():
+        line = raw_line.strip()
+        if not line:
+            flush()
+            continue
+        if line == "WEBVTT" or line.startswith(("Kind:", "Language:", "NOTE ")):
+            continue
+        if line.isdigit() and current_start is None:
+            continue
+        if "-->" in line:
+            flush()
+            start_text, end_text = line.split("-->", 1)
+            end_text = end_text.split()[0]
+            try:
+                current_start = caption_time_to_seconds(start_text)
+                current_duration = max(caption_time_to_seconds(end_text) - current_start, 0.0)
+            except ValueError:
+                current_start = None
+                current_duration = 0.0
+            continue
+        if current_start is not None:
+            current_lines.append(line)
+    flush()
+    return entries
+
+
+def caption_candidates(info: dict[str, Any], languages: list[str]) -> Iterable[tuple[str, dict[str, Any], str]]:
+    wanted = languages or ["en", "en-US"]
+    stores = (
+        ("subtitles", info.get("subtitles") or {}),
+        ("automatic captions", info.get("automatic_captions") or {}),
+    )
+    for store_label, store in stores:
+        for language in wanted:
+            for candidate_language in (language, language.split("-", 1)[0]):
+                tracks = store.get(candidate_language) or []
+                for track in tracks:
+                    yield store_label, track, candidate_language
+        for candidate_language, tracks in store.items():
+            if not str(candidate_language).lower().startswith("en"):
+                continue
+            for track in tracks:
+                yield store_label, track, str(candidate_language)
+
+
+def caption_track_entries(track: dict[str, Any], response: requests.Response) -> list[dict[str, Any]]:
+    ext = track.get("ext")
+    if ext == "json3":
+        return json3_caption_entries(response.json())
+    if ext in {"vtt", "srt"}:
+        return text_caption_entries(response.text)
+    return []
+
+
+def yt_dlp_transcript_from_info(info: dict[str, Any], languages: list[str]) -> tuple[list[dict[str, Any]] | None, str | None]:
+    fallback_error = "no usable English caption track found"
+    for source_label, track, language in caption_candidates(info, languages):
+        if track.get("ext") not in {"json3", "vtt", "srt"} or not track.get("url"):
+            continue
+        try:
+            response = requests.get(track["url"], headers={"User-Agent": USER_AGENT}, timeout=REQUEST_TIMEOUT)
+            response.raise_for_status()
+            entries = caption_track_entries(track, response)
+        except Exception as exc:
+            fallback_error = f"{source_label} {language} {track.get('ext')} caption fetch failed: {type(exc).__name__}: {exc}"
+            continue
+        if entries:
+            return entries, None
+        fallback_error = f"{source_label} {language} {track.get('ext')} caption track was empty"
+    return None, fallback_error
+
+
+def yt_dlp_transcript_for(video_id: str, languages: list[str]) -> tuple[list[dict[str, Any]] | None, str | None]:
+    try:
+        import yt_dlp
+    except ImportError:
+        return None, "yt-dlp is not installed"
+
+    try:
+        with yt_dlp.YoutubeDL({"quiet": True, "no_warnings": True, "skip_download": True}) as ydl:
+            info = ydl.extract_info(f"https://www.youtube.com/watch?v={video_id}", download=False)
+    except Exception as exc:
+        return None, f"yt-dlp caption lookup failed: {type(exc).__name__}: {exc}"
+    if not isinstance(info, dict):
+        return None, "yt-dlp caption lookup returned no metadata"
+    return yt_dlp_transcript_from_info(info, languages)
+
+
+def transcript_for(
+    video_id: str,
+    languages: list[str],
+    yt_dlp_info: dict[str, Any] | None = None,
+) -> tuple[list[dict[str, Any]] | None, str | None]:
+    fallback_error: str | None = None
+    if yt_dlp_info:
+        transcript, fallback_error = yt_dlp_transcript_from_info(yt_dlp_info, languages)
+        if transcript:
+            return transcript, None
+
+    primary_error: str | None = None
     try:
         from youtube_transcript_api import YouTubeTranscriptApi
     except ImportError:
-        return None, "youtube-transcript-api is not installed"
-
-    try:
+        primary_error = "youtube-transcript-api is not installed"
+    else:
         try:
-            fetched = YouTubeTranscriptApi().fetch(video_id, languages=languages)
-            if hasattr(fetched, "to_raw_data"):
-                return fetched.to_raw_data(), None
-            return list(fetched), None
-        except TypeError:
-            return YouTubeTranscriptApi.get_transcript(video_id, languages=languages), None
-    except Exception as exc:
-        return None, f"{type(exc).__name__}: {exc}"
+            try:
+                fetched = YouTubeTranscriptApi().fetch(video_id, languages=languages)
+                if hasattr(fetched, "to_raw_data"):
+                    return fetched.to_raw_data(), None
+                return list(fetched), None
+            except TypeError:
+                return YouTubeTranscriptApi.get_transcript(video_id, languages=languages), None
+        except Exception as exc:
+            primary_error = f"{type(exc).__name__}: {exc}"
+
+    if not yt_dlp_info:
+        transcript, fallback_error = yt_dlp_transcript_for(video_id, languages)
+        if transcript:
+            return transcript, None
+    if primary_error and fallback_error:
+        return None, f"{primary_error}; yt-dlp fallback: {fallback_error}"
+    return None, primary_error or fallback_error
 
 
 def scrape_youtube(session: requests.Session, account: str, args: argparse.Namespace) -> list[ArchiveRecord]:
+    if args.backfill and getattr(args, "since_dt", None):
+        return scrape_youtube_backfill(session, account, args)
+
     feed_url, root = fetch_youtube_feed(session, account)
     ns = {
         "atom": "http://www.w3.org/2005/Atom",
@@ -1672,6 +2017,8 @@ def scrape_youtube(session: requests.Session, account: str, args: argparse.Names
         published = parse_datetime(first_text(entry, "atom:published", ns))
         link_node = entry.find("atom:link[@rel='alternate']", ns)
         video_url = link_node.attrib.get("href") if link_node is not None else f"https://www.youtube.com/watch?v={video_id}"
+        if args.post_id and video_id != args.post_id:
+            continue
         views = None
         stats = entry.find("media:group/media:community/media:statistics", ns)
         if stats is not None:
@@ -1770,7 +2117,14 @@ def run(args: argparse.Namespace) -> int:
                     break
                 continue
             consecutive_seen = 0
-            if archive_record(session, record, state, args):
+            try:
+                changed = archive_record(session, record, state, args)
+            except ScrapeError as exc:
+                message = f"{canonical_platform_dir(platform)}/{account}: {exc}"
+                state["last_errors"].append(message)
+                print(f"ERROR {message}", file=sys.stderr, flush=True)
+                break
+            if changed:
                 archived += 1
                 print(f"Archived: {record.url}", flush=True)
             else:

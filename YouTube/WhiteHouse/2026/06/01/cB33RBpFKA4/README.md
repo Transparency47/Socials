@@ -8,12 +8,12 @@
 - Post URL: https://www.youtube.com/shorts/cB33RBpFKA4
 - Title: Newark or anywhere in America, the message doesn’t change: ICE operations will NOT be deterred
 - Date published: 2026-06-01T15:56:08+00:00
-- Date accessed: 2026-06-01T19:47:55.844480+00:00
+- Date accessed: 2026-06-01T22:51:32.795973+00:00
 - Content kind: youtube_video
 
 ## Metrics
 
-- views: 2492
+- views: 4049
 
 ## API Data
 
