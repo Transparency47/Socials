@@ -1,0 +1,34 @@
+# TruthSocial / RealDonaldTrump / 2026-05-15
+
+- Posts: 10
+
+- [21:14 UTC - Truth Social post 116580659228348572](116580659228348572/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116580659228348572
+  - _No text content captured._
+- [21:03 UTC - FREE TINA!](116580615618774330/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116580615618774330
+  - FREE TINA!
+- [15:24 UTC - Henry Clay and the architecture of American strength: [https://www. washingtontimes.com/ne...](116579282279382399/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116579282279382399
+  - Henry Clay and the architecture of American strength: [https://www. washingtontimes.com/news/2026/ apr/14/henry-clay-architecture-american-strength/](https://www.washingtontimes.co...
+- [14:00 UTC - Highly Respected America First Congresswoman, Julia Letlow, of the wonderful State of Loui...](116578950880982545/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116578950880982545
+  - Highly Respected America First Congresswoman, Julia Letlow, of the wonderful State of Louisiana, is a Great Star, has been from the very beginning, and only gets better! Julia is r...
+- [10:31 UTC - Truth Social post 116578129694002220](116578129694002220/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116578129694002220
+  - _No text content captured._
+- [10:04 UTC - China has a Ballroom, and so should the U.S.A.! It’s under construction, ahead of schedule...](116578023743355359/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116578023743355359
+  - China has a Ballroom, and so should the U.S.A.! It’s under construction, ahead of schedule, and will be the finest facility of its kind anywhere in the U.S.A. Thank you for all the...
+- [09:52 UTC - This is a statue, now standing at Doral, that was commissioned by a large group of politic...](116577975964537452/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116577975964537452
+  - This is a statue, now standing at Doral, that was commissioned by a large group of political supporters who just wanted a statue of yours truly. I very much appreciate their suppor...
+- [09:11 UTC - Truth Social post 116577816196563165](116577816196563165/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116577816196563165
+  - _No text content captured._
+- [09:01 UTC - Congratulations to Rachel Campos-Duffy on her new book, “All American Patriotism: Celebrat...](116577775352087911/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116577775352087911
+  - Congratulations to Rachel Campos-Duffy on her new book, “All American Patriotism: Celebrating 250 Years of America’s Greatness!” By sharing personal stories of Patriotism, along wi...
+- [08:52 UTC - I am proud to announce the site of the NATIONAL GARDEN OF AMERICAN HEROES. This magnificen...](116577740502580740/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116577740502580740
+  - I am proud to announce the site of the NATIONAL GARDEN OF AMERICAN HEROES. This magnificent exhibition of statues will be located in West Potomac Park, which we are transforming in...

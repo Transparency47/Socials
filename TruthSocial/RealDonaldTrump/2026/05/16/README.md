@@ -1,0 +1,184 @@
+# TruthSocial / RealDonaldTrump / 2026-05-16
+
+- Posts: 60
+
+- [22:53 UTC - Truth Social post 116586710482141788](116586710482141788/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116586710482141788
+  - _No text content captured._
+- [22:28 UTC - Is anyone interested in running against Weak Minded Lauren Boebert in Colorado’s Fourth Co...](116586609402311469/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116586609402311469
+  - Is anyone interested in running against Weak Minded Lauren Boebert in Colorado’s Fourth Congressional District? You remember Lauren moved to the District when it became obvious tha...
+- [22:26 UTC - Word is that Rand Paul and Lauren Boebert, two very difficult, and highly unreasonable, Re...](116586605115993784/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116586605115993784
+  - Word is that Rand Paul and Lauren Boebert, two very difficult, and highly unreasonable, Republican Votes, are right now in the Great Commonwealth of Kentucky, which I won by 31 poi...
+- [21:58 UTC - Truth Social post 116586492627718434](116586492627718434/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116586492627718434
+  - _No text content captured._
+- [21:57 UTC - GOOD RIDDANCE! After 15 years of Dumocrats promising that “Climate Change” is going to des...](116586488927495029/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116586488927495029
+  - GOOD RIDDANCE! After 15 years of Dumocrats promising that “Climate Change” is going to destroy the Planet, the United Nations TOP Climate Committee just admitted that its own proje...
+- [21:54 UTC - Truth Social post 116586476725208144](116586476725208144/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116586476725208144
+  - _No text content captured._
+- [21:54 UTC - Truth Social post 116586476145878915](116586476145878915/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116586476145878915
+  - _No text content captured._
+- [21:52 UTC - Truth Social post 116586468527305826](116586468527305826/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116586468527305826
+  - _No text content captured._
+- [21:50 UTC - Truth Social post 116586463687981585](116586463687981585/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116586463687981585
+  - _No text content captured._
+- [21:48 UTC - Truth Social post 116586453049444077](116586453049444077/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116586453049444077
+  - _No text content captured._
+- [21:48 UTC - Truth Social post 116586452523225604](116586452523225604/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116586452523225604
+  - _No text content captured._
+- [21:40 UTC - Sample test of the Reflecting Pool with the Lincoln Memorial and the Washington Monument i...](116586421680561291/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116586421680561291
+  - Sample test of the Reflecting Pool with the Lincoln Memorial and the Washington Monument in the background — at each end of the Pool — which is, by the way, the World’s longest. Lo...
+- [21:26 UTC - Truth Social post 116586367695484013](116586367695484013/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116586367695484013
+  - _No text content captured._
+- [21:26 UTC - Truth Social post 116586366389291098](116586366389291098/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116586366389291098
+  - _No text content captured._
+- [21:23 UTC - [https:// x.com/lauraloomer/status/20556 09922935496847?s=42](https://x.com/lauraloomer/st...](116586355498518168/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116586355498518168
+  - [https:// x.com/lauraloomer/status/20556 09922935496847?s=42](https://x.com/lauraloomer/status/2055609922935496847?s=42)
+- [21:23 UTC - [https:// x.com/lauraloomer/status/20543 17665624129800?s=42](https://x.com/lauraloomer/st...](116586354590478390/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116586354590478390
+  - [https:// x.com/lauraloomer/status/20543 17665624129800?s=42](https://x.com/lauraloomer/status/2054317665624129800?s=42)
+- [21:22 UTC - [https://www. foxnews.com/politics/massies-e x-girlfriend-alleges-he-arranged-her-capitol-...](116586353731791213/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116586353731791213
+  - [https://www. foxnews.com/politics/massies-e x-girlfriend-alleges-he-arranged-her-capitol-hill-job-offered-5000-drop-termination-suit/](https://www.foxnews.com/politics/massies-ex-...
+- [21:14 UTC - Truth Social post 116586320433302718](116586320433302718/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116586320433302718
+  - _No text content captured._
+- [21:14 UTC - Truth Social post 116586318732457071](116586318732457071/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116586318732457071
+  - _No text content captured._
+- [21:13 UTC - Truth Social post 116586316852464445](116586316852464445/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116586316852464445
+  - _No text content captured._
+- [21:13 UTC - Truth Social post 116586316109977741](116586316109977741/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116586316109977741
+  - _No text content captured._
+- [21:10 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Reflecting Pool betwe...](116586304181801466/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116586304181801466
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Reflecting Pool between the Lincoln Memorial and the Washington Monument, approximately 2,030 feet, versus the...
+- [20:15 UTC - Truth Social post 116586090257890382](116586090257890382/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116586090257890382
+  - _No text content captured._
+- [20:11 UTC - Truth Social post 116586074184365979](116586074184365979/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116586074184365979
+  - _No text content captured._
+- [20:03 UTC - Truth Social post 116586041697060377](116586041697060377/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116586041697060377
+  - _No text content captured._
+- [20:01 UTC - Truth Social post 116586034017026836](116586034017026836/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116586034017026836
+  - _No text content captured._
+- [20:01 UTC - Truth Social post 116586033482342317](116586033482342317/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116586033482342317
+  - _No text content captured._
+- [20:01 UTC - Truth Social post 116586032998679221](116586032998679221/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116586032998679221
+  - _No text content captured._
+- [17:41 UTC - Truth Social post 116585481472735570](116585481472735570/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116585481472735570
+  - _No text content captured._
+- [17:07 UTC - Truth Social post 116585350109647241](116585350109647241/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116585350109647241
+  - _No text content captured._
+- [17:00 UTC - Truth Social post 116585320705814913](116585320705814913/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116585320705814913
+  - _No text content captured._
+- [17:00 UTC - A Great Honor to be with a Leader who is respected by all! President DONALD J. TRUMP](116585319912915479/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116585319912915479
+  - A Great Honor to be with a Leader who is respected by all! President DONALD J. TRUMP
+- [16:58 UTC - The old, broken, slate floor on the Walkway going to the Oval Office from the White House....](116585313854939538/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116585313854939538
+  - The old, broken, slate floor on the Walkway going to the Oval Office from the White House. The new granite floor replacing the old slate going to the Oval! President DONALD J. TRUM...
+- [16:55 UTC - Truth Social post 116585303538748178](116585303538748178/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116585303538748178
+  - _No text content captured._
+- [16:55 UTC - The Reflecting Pool between the Lincoln Memorial and the Washington Monument, approximatel...](116585301605450436/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116585301605450436
+  - The Reflecting Pool between the Lincoln Memorial and the Washington Monument, approximately 2,030 feet, versus the tallest buildings in the U.S.A. Obama and Biden spent more than 1...
+- [15:38 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116584998513616323 This is so c...](116584999440204144/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116584999440204144
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116584998513616323 This is so cool. Watch! President DJT
+- [15:38 UTC - Truth Social post 116584998513616323](116584998513616323/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116584998513616323
+  - _No text content captured._
+- [15:18 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116584918663563894](116584920502288420/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116584920502288420
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116584918663563894
+- [15:18 UTC - Truth Social post 116584918663563894](116584918663563894/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116584918663563894
+  - _No text content captured._
+- [15:16 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116584909715284014](116584910801585992/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116584910801585992
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116584909715284014
+- [15:15 UTC - Truth Social post 116584909715284014](116584909715284014/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116584909715284014
+  - _No text content captured._
+- [14:03 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116584624895292658](116584626908456628/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116584626908456628
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116584624895292658
+- [14:03 UTC - Truth Social post 116584624895292658](116584624895292658/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116584624895292658
+  - _No text content captured._
+- [14:03 UTC - No games!!! Watch what’s next on your favorite subject! President DJT](116584623668841124/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116584623668841124
+  - No games!!! Watch what’s next on your favorite subject! President DJT
+- [13:58 UTC - Failed New York State Governor Kathy Hochul, a Dumacrat, just blamed ME for her Long Islan...](116584607059752343/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116584607059752343
+  - Failed New York State Governor Kathy Hochul, a Dumacrat, just blamed ME for her Long Island Railroad STRIKE, when she knows, full well, that I have NOTHING TO DO WITH IT - never ev...
+- [13:41 UTC - THE SAVE AMERICA ACT MUST BE PASSED, NOW. Use the Housing and FISA Bills to get it done! M...](116584540364979721/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116584540364979721
+  - THE SAVE AMERICA ACT MUST BE PASSED, NOW. Use the Housing and FISA Bills to get it done! Maryland just had 500,000 Fake Mail-In Ballots revealed. We cannot, as a Country, put up wi...
+- [13:18 UTC - Senator Bill Cassidy of Louisiana is a disloyal disaster. His entire past campaign for the...](116584450399753941/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116584450399753941
+  - Senator Bill Cassidy of Louisiana is a disloyal disaster. His entire past campaign for the Senate was about “TRUMP,” how he’s with me all the way, and then, after winning, he turne...
+- [12:39 UTC - House Judiciary Chairman urges DOJ to permanently dismiss all Trump cases after bombshell ...](116584295494641153/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116584295494641153
+  - House Judiciary Chairman urges DOJ to permanently dismiss all Trump cases after bombshell report: [https:// justthenews.com/accountability /political-ethics/house-judiciary-chairma...
+- [12:39 UTC - Republicans have lead in redistricting race, and it’s about to get bigger: [https:// justt...](116584293530067315/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116584293530067315
+  - Republicans have lead in redistricting race, and it’s about to get bigger: [https:// justthenews.com/politics-polic y/wkdrepublicans-have-lead-redistricting-race-its-about-get-bigg...
+- [12:06 UTC - John Solomon unpacks a bombshell revelation about James Comey: [https:// justthenews.com/p...](116584165982667871/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116584165982667871
+  - John Solomon unpacks a bombshell revelation about James Comey: [https:// justthenews.com/podcasts/john- solomon-reports/john-solomon-unpacks-bombshell-revelation-about-james-comey]...
+- [12:00 UTC - Judicial Watch files lawsuit seeking records on $2 billion grant to nonprofit tied to Stac...](116584141254236893/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116584141254236893
+  - Judicial Watch files lawsuit seeking records on $2 billion grant to nonprofit tied to Stacey Abrams: [https:// justthenews.com/government/cou rts-law/judicial-watch-files-lawsuit-s...
+- [11:58 UTC - One Nation Under Fraud: Trump administration uncovers massive welfare, citizenship abuses:...](116584133846676301/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116584133846676301
+  - One Nation Under Fraud: Trump administration uncovers massive welfare, citizenship abuses: [https:// justthenews.com/accountability /waste-fraud-and-abuse/one-nation-under-fraud-tr...
+- [11:57 UTC - Biden FBI secretly set up Trump to be indicted after he leaves office, Arctic Frost memos ...](116584131846427272/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116584131846427272
+  - Biden FBI secretly set up Trump to be indicted after he leaves office, Arctic Frost memos suggest: [https:// justthenews.com/government/cou rts-law/fbi-and-jack-smith-prosecutor-so...
+- [03:40 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116582175749655803](116582176802983329/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116582176802983329
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116582175749655803
+- [03:40 UTC - Truth Social post 116582175749655803](116582175749655803/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116582175749655803
+  - _No text content captured._
+- [03:33 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116582147871969484](116582148716425394/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116582148716425394
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116582147871969484
+- [03:33 UTC - Truth Social post 116582147871969484](116582147871969484/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116582147871969484
+  - _No text content captured._
+- [03:31 UTC - Tonight, at my direction, brave American forces and the Armed Forces of Nigeria flawlessly...](116582139808210458/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116582139808210458
+  - Tonight, at my direction, brave American forces and the Armed Forces of Nigeria flawlessly executed a meticulously planned and very complex mission to eliminate the most active ter...
+- [03:22 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116582102435100568](116582103671933582/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116582103671933582
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116582102435100568
+- [03:21 UTC - Truth Social post 116582102435100568](116582102435100568/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116582102435100568
+  - _No text content captured._

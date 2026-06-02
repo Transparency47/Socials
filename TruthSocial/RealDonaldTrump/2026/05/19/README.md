@@ -1,0 +1,64 @@
+# TruthSocial / RealDonaldTrump / 2026-05-19
+
+- Posts: 20
+
+- [23:49 UTC - Truth Social post 116603918051913311](116603918051913311/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116603918051913311
+  - _No text content captured._
+- [23:49 UTC - Truth Social post 116603917456845947](116603917456845947/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116603917456845947
+  - _No text content captured._
+- [23:49 UTC - Truth Social post 116603916505533012](116603916505533012/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116603916505533012
+  - _No text content captured._
+- [23:49 UTC - Truth Social post 116603915782345370](116603915782345370/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116603915782345370
+  - _No text content captured._
+- [23:49 UTC - Truth Social post 116603915048534941](116603915048534941/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116603915048534941
+  - _No text content captured._
+- [21:34 UTC - I have long said that the horrific tragedy that beset East Palestine in 2023, along with S...](116603387456971704/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116603387456971704
+  - I have long said that the horrific tragedy that beset East Palestine in 2023, along with Sleepy Joe Biden’s utterly incompetent response, must NEVER happen again. I quickly and str...
+- [20:56 UTC - Can you imagine “Congressman” Thomas Massie putting out a many years ago Endorsement of hi...](116603236399876536/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116603236399876536
+  - Can you imagine “Congressman” Thomas Massie putting out a many years ago Endorsement of him, by me, when he knows that he wasn’t endorsed, but that I proudly endorsed Ed Gallrein?...
+- [19:46 UTC - Horrible Congressman Thomas Massie put out an old Endorsement, from many years ago, of him...](116602960667085780/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116602960667085780
+  - Horrible Congressman Thomas Massie put out an old Endorsement, from many years ago, of him by me long before I found out that he was the Worst Congressman in the History of our Cou...
+- [16:30 UTC - The Highly Respected Attorney General of Texas, Ken Paxton, an America First Patriot, and ...](116602192066577324/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116602192066577324
+  - The Highly Respected Attorney General of Texas, Ken Paxton, an America First Patriot, and someone who has always been extremely loyal to me and our AMAZING MAGA MOVEMENT, is runnin...
+- [15:28 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Tom Massie of Kentucky, t...](116601945025061918/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116601945025061918
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Tom Massie of Kentucky, the worst and most unreliable Republican Congressman in the history of our Country, is an e...
+- [15:27 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Bad Congressman Tom Massi...](116601944483216097/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116601944483216097
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Bad Congressman Tom Massie voted against Tax Cuts, the Border Wall, our Military and Law Enforcement. Actually, he...
+- [15:27 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The worst Congressman in ...](116601944234027753/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116601944234027753
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The worst Congressman in the long and storied history of the Republican Party, is Thomas Massie. He is an obstructi...
+- [15:27 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Third Rate Congressman Th...](116601943646377360/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116601943646377360
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Third Rate Congressman Thomas Massie, a Weak and Pathetic RINO from the Great Commonwealth of Kentucky, a place I l...
+- [15:26 UTC - RT [@ LauraLoomer](https://truthsocial.com/@LauraLoomer) EXCLUSIVE INTERVIEW: Thomas Massi...](116601940244807949/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116601940244807949
+  - RT [@ LauraLoomer](https://truthsocial.com/@LauraLoomer) EXCLUSIVE INTERVIEW: Thomas Massie's Ex-Girlfriend And Former Congressional Staffer Cynthia West Tells All [https:// rumble...
+- [12:49 UTC - Truth Social post 116601320183465625](116601320183465625/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116601320183465625
+  - _No text content captured._
+- [02:25 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Thank you to Great Patrio...](116598868876480995/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116598868876480995
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Thank you to Great Patriot Salena Zito for this wonderful article! President DONALD J. TRUMP [https://www. washingt...
+- [02:25 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116598864907030187](116598866352233340/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116598866352233340
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116598864907030187
+- [02:24 UTC - Truth Social post 116598864907030187](116598864907030187/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116598864907030187
+  - _No text content captured._
+- [01:52 UTC - Thank you to Great Patriot Salena Zito for this wonderful article! President DONALD J. TRU...](116598739883570394/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116598739883570394
+  - Thank you to Great Patriot Salena Zito for this wonderful article! President DONALD J. TRUMP [https://www. washingtonexaminer.com/opinion /4556928/experts-miss-trumps-enduring-pres...
+- [01:08 UTC - Small Water Area Test at The Reflecting Pool looking at The Lincoln Memorial! President DO...](116598566704332049/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116598566704332049
+  - Small Water Area Test at The Reflecting Pool looking at The Lincoln Memorial! President DONALD J. TRUMP

@@ -1,0 +1,106 @@
+# TruthSocial / RealDonaldTrump / 2026-05-26
+
+- Posts: 34
+
+- [21:19 UTC - It is critically important that the CFTC’s exclusive authority over Prediction Markets is ...](116642964849373081/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116642964849373081
+  - It is critically important that the CFTC’s exclusive authority over Prediction Markets is maintained, and that they will thrive. Under my leadership, we are setting “rules of the r...
+- [20:47 UTC - Based on the possible bad weather conditions tomorrow, we will be having our Cabinet Meeti...](116642836649690961/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116642836649690961
+  - Based on the possible bad weather conditions tomorrow, we will be having our Cabinet Meeting in the White House, and will be postponing the Cabinet trip to Camp David. Thank you fo...
+- [20:37 UTC - Highly Respected Congressman Byron Donalds is running for Governor of Florida, a State tha...](116642799421262985/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116642799421262985
+  - Highly Respected Congressman Byron Donalds is running for Governor of Florida, a State that I love, and WON BIG, in 2016, 2020, and 2024. I know Byron well, have seen him tested at...
+- [19:32 UTC - If Iran surrenders, admits their Navy is gone and resting at the bottom of the sea, and th...](116642543193922330/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116642543193922330
+  - If Iran surrenders, admits their Navy is gone and resting at the bottom of the sea, and their Air Force is no longer with us, and if their entire Military walks out of Tehran, weap...
+- [16:47 UTC - Teen takeover in Chicago. Five officers badly hurt. Mayor and Governor are terrible. Shoul...](116641893088020729/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116641893088020729
+  - Teen takeover in Chicago. Five officers badly hurt. Mayor and Governor are terrible. Should call for help!
+- [16:40 UTC - Just finished my 6 month physical at Walter Reed Military Medical Center. Everything check...](116641867405994600/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116641867405994600
+  - Just finished my 6 month physical at Walter Reed Military Medical Center. Everything checked out PERFECTLY. Thank you to the great Doctors and Staff! Heading back to the White Hous...
+- [12:18 UTC - Great job by Congressman Derrick Van Orden on FoxNews. A real PRO! President DJT](116640837468653063/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116640837468653063
+  - Great job by Congressman Derrick Van Orden on FoxNews. A real PRO! President DJT
+- [11:29 UTC - Truth Social post 116640644924110544](116640644924110544/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116640644924110544
+  - _No text content captured._
+- [11:29 UTC - Truth Social post 116640644188806998](116640644188806998/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116640644188806998
+  - _No text content captured._
+- [11:26 UTC - Historian, and far beyond that, Victor Davis Hanson, is GREAT. That’s all I have to say. T...](116640630404037479/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116640630404037479
+  - Historian, and far beyond that, Victor Davis Hanson, is GREAT. That’s all I have to say. There is no further explanation needed. A fantastic man! President DJT
+- [11:19 UTC - Truth Social post 116640604780685905](116640604780685905/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116640604780685905
+  - _No text content captured._
+- [11:19 UTC - Exclusive: Key Biden DOJ official raised red flags about FBI’s Mar-a-Lago raid, memo shows...](116640602660695683/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116640602660695683
+  - Exclusive: Key Biden DOJ official raised red flags about FBI’s Mar-a-Lago raid, memo shows: [https:// justthenews.com/government/cou rts-law/biden-doj-official-had-concerns-trump-d...
+- [11:18 UTC - U.S. attorney in Miami sends ‘message’ to deep state with indictment against ex-prosecutor...](116640601110526474/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116640601110526474
+  - U.S. attorney in Miami sends ‘message’ to deep state with indictment against ex-prosecutor: [https:// justthenews.com/accountability /political-ethics/us-attorney-miami-sends-messa...
+- [10:07 UTC - Great job on FoxNews by Alex Gray. Thanks Alex!!! President DJT](116640319334016190/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116640319334016190
+  - Great job on FoxNews by Alex Gray. Thanks Alex!!! President DJT
+- [10:02 UTC - [https:// truthsocial.com/users/Spiritua lStreetfighter/statuses/116635950751637260](https...](116640302390587616/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116640302390587616
+  - [https:// truthsocial.com/users/Spiritua lStreetfighter/statuses/116635950751637260](https://truthsocial.com/users/SpiritualStreetfighter/statuses/116635950751637260)
+- [10:01 UTC - [https:// truthsocial.com/users/Imalucky angel/statuses/116634887599602834](https://truths...](116640296501012524/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116640296501012524
+  - [https:// truthsocial.com/users/Imalucky angel/statuses/116634887599602834](https://truthsocial.com/users/Imaluckyangel/statuses/116634887599602834)
+- [10:00 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116634844670581336](https://tr...](116640294393468349/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116640294393468349
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116634844670581336](https://truthsocial.com/users/IStandWithTrump47/statuses/116634844670581336)
+- [10:00 UTC - [https:// truthsocial.com/users/1776WeTh ePeople1776Q/statuses/116634771557391388](https:/...](116640292118558842/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116640292118558842
+  - [https:// truthsocial.com/users/1776WeTh ePeople1776Q/statuses/116634771557391388](https://truthsocial.com/users/1776WeThePeople1776Q/statuses/116634771557391388)
+- [09:59 UTC - [https:// truthsocial.com/users/Imalucky angel/statuses/116634918808075195](https://truths...](116640290568039212/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116640290568039212
+  - [https:// truthsocial.com/users/Imalucky angel/statuses/116634918808075195](https://truthsocial.com/users/Imaluckyangel/statuses/116634918808075195)
+- [09:59 UTC - [https:// truthsocial.com/users/Imalucky angel/statuses/116634885298397647](https://truths...](116640289354505970/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116640289354505970
+  - [https:// truthsocial.com/users/Imalucky angel/statuses/116634885298397647](https://truthsocial.com/users/Imaluckyangel/statuses/116634885298397647) . Texas, Vote for Ken Paxton, o...
+- [09:56 UTC - [https:// truthsocial.com/users/dpritsky /statuses/116634739174498414](https://truthsocial...](116640277391760989/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116640277391760989
+  - [https:// truthsocial.com/users/dpritsky /statuses/116634739174498414](https://truthsocial.com/users/dpritsky/statuses/116634739174498414)
+- [09:56 UTC - [https:// truthsocial.com/users/lpsychol ogy/statuses/116634696012655362](https://truthsoc...](116640276418472460/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116640276418472460
+  - [https:// truthsocial.com/users/lpsychol ogy/statuses/116634696012655362](https://truthsocial.com/users/lpsychology/statuses/116634696012655362)
+- [09:54 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116634874790791060](https://tr...](116640270261424904/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116640270261424904
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116634874790791060](https://truthsocial.com/users/IStandWithTrump47/statuses/116634874790791060)
+- [09:53 UTC - [https:// truthsocial.com/users/lauramar ks/statuses/116634728742534171](https://truthsoci...](116640266798821002/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116640266798821002
+  - [https:// truthsocial.com/users/lauramar ks/statuses/116634728742534171](https://truthsocial.com/users/lauramarks/statuses/116634728742534171)
+- [09:53 UTC - [https:// truthsocial.com/users/lauramar ks/statuses/116634724803550055](https://truthsoci...](116640265599728280/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116640265599728280
+  - [https:// truthsocial.com/users/lauramar ks/statuses/116634724803550055](https://truthsocial.com/users/lauramarks/statuses/116634724803550055)
+- [09:52 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116634832160073750](https://tr...](116640262926602501/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116640262926602501
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116634832160073750](https://truthsocial.com/users/IStandWithTrump47/statuses/116634832160073750)
+- [02:14 UTC - U.S. attorney in Miami sends ‘message’ to deep state with indictment against ex-prosecutor...](116638460441254303/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116638460441254303
+  - U.S. attorney in Miami sends ‘message’ to deep state with indictment against ex-prosecutor [https:// justthenews.com/accountability /political-ethics/us-attorney-miami-sends-messag...
+- [02:13 UTC - Exclusive: Key Biden DOJ official raised red flags about FBI’s Mar-a-Lago raid, memo shows...](116638455077643701/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116638455077643701
+  - Exclusive: Key Biden DOJ official raised red flags about FBI’s Mar-a-Lago raid, memo shows: [https:// justthenews.com/government/cou rts-law/biden-doj-official-had-concerns-trump-d...
+- [00:47 UTC - Truth Social post 116638118403619197](116638118403619197/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116638118403619197
+  - _No text content captured._
+- [00:10 UTC - Truth Social post 116637973078764700](116637973078764700/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116637973078764700
+  - _No text content captured._
+- [00:10 UTC - Truth Social post 116637972659155015](116637972659155015/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116637972659155015
+  - _No text content captured._
+- [00:10 UTC - Truth Social post 116637972049713823](116637972049713823/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116637972049713823
+  - _No text content captured._
+- [00:10 UTC - Truth Social post 116637971422874569](116637971422874569/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116637971422874569
+  - _No text content captured._
+- [00:09 UTC - Truth Social post 116637970897874082](116637970897874082/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116637970897874082
+  - _No text content captured._

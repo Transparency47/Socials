@@ -1,0 +1,73 @@
+# TruthSocial / RealDonaldTrump / 2026-05-23
+
+- Posts: 23
+
+- [20:30 UTC - I am in the Oval Office at the White House where we just had a very good call with Preside...](116625784011805994/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116625784011805994
+  - I am in the Oval Office at the White House where we just had a very good call with President Mohammed bin Salman Al Saud, of Saudi Arabia, Mohammed bin Zayed Al Nahyan, of The Unit...
+- [17:00 UTC - Truth Social post 116624956408365867](116624956408365867/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116624956408365867
+  - _No text content captured._
+- [16:59 UTC - [https://www. pressandjournal.co.uk/fp/sport /golf/7019115/trump-international-lands-colin...](116624953059006946/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116624953059006946
+  - [https://www. pressandjournal.co.uk/fp/sport /golf/7019115/trump-international-lands-colin-montgomeries-seal-of-approval/](https://www.pressandjournal.co.uk/fp/sport/golf/7019115/t...
+- [16:58 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116624948733776921](116624949486785240/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116624949486785240
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116624948733776921
+- [16:58 UTC - Truth Social post 116624948733776921](116624948733776921/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116624948733776921
+  - _No text content captured._
+- [16:57 UTC - RT [@ realPatriotFreedomProject](https://truthsocial.com/@realPatriotFreedomProject) The s...](116624946382065756/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116624946382065756
+  - RT [@ realPatriotFreedomProject](https://truthsocial.com/@realPatriotFreedomProject) The same Dems and anti-Trumpers who are melting down over pardons now didn’t say a word while A...
+- [16:57 UTC - [https://www. foxnews.com/politics/dem-gover nor-hot-seat-testing-limits-authority-major-m...](116624945545360144/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116624945545360144
+  - [https://www. foxnews.com/politics/dem-gover nor-hot-seat-testing-limits-authority-major-move-ice](https://www.foxnews.com/politics/dem-governor-hot-seat-testing-limits-authority-m...
+- [16:57 UTC - Truth Social post 116624944416340192](116624944416340192/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116624944416340192
+  - _No text content captured._
+- [16:56 UTC - We all miss the Huckster!](116624942172469666/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116624942172469666
+  - We all miss the Huckster!
+- [16:56 UTC - President Trump’s Fixation On Heaven Is Good For America: [https://www. americanthinker.co...](116624941023353466/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116624941023353466
+  - President Trump’s Fixation On Heaven Is Good For America: [https://www. americanthinker.com/articles/2 026/03/president_trump_s_fixation_on_heaven_is_good_for_america.html](https:/...
+- [16:55 UTC - Truth Social post 116624939619517112](116624939619517112/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116624939619517112
+  - _No text content captured._
+- [16:55 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116624937762459378](116624938660853680/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116624938660853680
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116624937762459378
+- [16:55 UTC - Truth Social post 116624937762459378](116624937762459378/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116624937762459378
+  - _No text content captured._
+- [16:55 UTC - Republican House Should Staple SAVE America Act to Everything It Sends the GOP Senate: [ht...](116624936292481598/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116624936292481598
+  - Republican House Should Staple SAVE America Act to Everything It Sends the GOP Senate: [https://www. dailysignal.com/2026/05/15/sav e-act-house-senate/](https://www.dailysignal.com...
+- [16:54 UTC - America’s love affair with the road endures: [https://www. washingtonexaminer.com/opinion ...](116624935281735015/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116624935281735015
+  - America’s love affair with the road endures: [https://www. washingtonexaminer.com/opinion /columnists/4570231/america-love-affair-roads-automobiles/](https://www.washingtonexaminer...
+- [16:54 UTC - Won Big! [https://www. washingtonexaminer.com/in_focu s/4571185/thomas-massie-useless-tenu...](116624933679947822/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116624933679947822
+  - Won Big! [https://www. washingtonexaminer.com/in_focu s/4571185/thomas-massie-useless-tenure-congress-coming-to-an-end/](https://www.washingtonexaminer.com/in_focus/4571185/thomas-...
+- [16:54 UTC - Trump’s Global Gambit: How Strikes On Iran And Venezuela Are Fueling America’s Economic Co...](116624932696824292/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116624932696824292
+  - Trump’s Global Gambit: How Strikes On Iran And Venezuela Are Fueling America’s Economic Comeback And Checking China: [https:// loomered.com/2026/04/28/trumps -global-gambit-how-str...
+- [13:08 UTC - Truth Social post 116624046809952385](116624046809952385/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116624046809952385
+  - _No text content captured._
+- [13:08 UTC - Truth Social post 116624044239404754](116624044239404754/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116624044239404754
+  - _No text content captured._
+- [13:07 UTC - Truth Social post 116624042090139559](116624042090139559/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116624042090139559
+  - _No text content captured._
+- [13:07 UTC - A Dumocrat! Don’t allow this lying sleazebag on FoxNews!](116624040731909127/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116624040731909127
+  - A Dumocrat! Don’t allow this lying sleazebag on FoxNews!
+- [12:59 UTC - Truth Social post 116624011634075592](116624011634075592/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116624011634075592
+  - _No text content captured._
+- [12:59 UTC - Truth Social post 116624011015760482](116624011015760482/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116624011015760482
+  - _No text content captured._

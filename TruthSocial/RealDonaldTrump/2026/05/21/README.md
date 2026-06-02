@@ -1,0 +1,55 @@
+# TruthSocial / RealDonaldTrump / 2026-05-21
+
+- Posts: 17
+
+- [23:19 UTC - I love the Great State of South Carolina, won every one of my Races there by a landslide, ...](116615125212867437/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116615125212867437
+  - I love the Great State of South Carolina, won every one of my Races there by a landslide, and only want the BEST representing you in Elected Office! There’s this RINO Candidate in...
+- [22:55 UTC - It is my Great Honor to endorse MAGA Warrior, Kenny Cody, who is running to represent the ...](116615029293475348/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116615029293475348
+  - It is my Great Honor to endorse MAGA Warrior, Kenny Cody, who is running to represent the fantastic people of Tennessee’s 11th State House District. A very successful School Teache...
+- [22:53 UTC - Big Vote today (48-1!) in the Energy and Commerce Committee on a Bill including The Sunshi...](116615022975327653/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116615022975327653
+  - Big Vote today (48-1!) in the Energy and Commerce Committee on a Bill including The Sunshine Protection Act, which will be making Daylight Saving Time Permanent! This is so importa...
+- [22:33 UTC - It is my Great Honor to endorse America First Patriot, Derek Merrin, who is running to rep...](116614942442210781/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116614942442210781
+  - It is my Great Honor to endorse America First Patriot, Derek Merrin, who is running to represent the wonderful people of Ohio’s 9th Congressional District! Derek is running against...
+- [20:32 UTC - Truth Social post 116614468546006791](116614468546006791/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116614468546006791
+  - _No text content captured._
+- [20:32 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116614466038746454](116614467701219214/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116614467701219214
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116614466038746454
+- [20:32 UTC - Truth Social post 116614466038746454](116614466038746454/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116614466038746454
+  - _No text content captured._
+- [20:32 UTC - Truth Social post 116614465342502635](116614465342502635/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116614465342502635
+  - _No text content captured._
+- [20:28 UTC - Watch for the Christopher Columbus Memorial Circle Fountain, by Union Station, opening soo...](116614451266681529/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116614451266681529
+  - Watch for the Christopher Columbus Memorial Circle Fountain, by Union Station, opening soon! President DONALD J. TRUMP
+- [20:26 UTC - Based on the successful Election of the now President of Poland, Karol Nawrocki, who I was...](116614442694237946/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116614442694237946
+  - Based on the successful Election of the now President of Poland, Karol Nawrocki, who I was proud to Endorse, and our relationship with him, I am pleased to announce that the United...
+- [18:34 UTC - Thank you to the great Troy Nehls for fighting for the Citizens of East Palestine, Railway...](116614001137695379/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116614001137695379
+  - Thank you to the great Troy Nehls for fighting for the Citizens of East Palestine, Railway Safety, and my Agenda. I am calling on Transportation Committee Republicans to support hi...
+- [18:23 UTC - It was a great time and success in Georgia on Tuesday night where Geoff Duncan, a failed L...](116613958839456698/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116613958839456698
+  - It was a great time and success in Georgia on Tuesday night where Geoff Duncan, a failed Lieutenant Governor, and Disgrace to the Republican Party, ran for Governor, as a Democrat,...
+- [12:49 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Fiscal burden of illegal ...](116612644955271921/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116612644955271921
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Fiscal burden of illegal aliens gradually disappearing due to Trump admin: [https:// justthenews.com/government/whi...
+- [12:49 UTC - [https:// nypost.com/2026/05/01/opinion/ heres-how-to-crush-tehran-in-three-moves/](https:...](116612644478185135/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116612644478185135
+  - [https:// nypost.com/2026/05/01/opinion/ heres-how-to-crush-tehran-in-three-moves/](https://nypost.com/2026/05/01/opinion/heres-how-to-crush-tehran-in-three-moves/)
+- [03:13 UTC - Fiscal burden of illegal aliens gradually disappearing due to Trump admin: [https:// justt...](116610382814275079/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116610382814275079
+  - Fiscal burden of illegal aliens gradually disappearing due to Trump admin: [https:// justthenews.com/government/whi te-house/fiscal-burden-illegal-aliens-gradually-disappearing-tha...
+- [03:09 UTC - Deranged Jack Smith and his “gang” are really bad news. Can never be allowed to happen aga...](116610366261498296/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116610366261498296
+  - Deranged Jack Smith and his “gang” are really bad news. Can never be allowed to happen again. They should all be prosecuted! [https:// justthenews.com/government/cou rts-law/pro-de...
+- [02:21 UTC - Akio Toyoda goes full MAGA in star-spangled, BBQ-slathered, F-150-truckin’, NASCAR-styled ...](116610177964428920/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116610177964428920
+  - Akio Toyoda goes full MAGA in star-spangled, BBQ-slathered, F-150-truckin’, NASCAR-styled charm offensive: [https://www. autonews.com/toyota/an-toyota- akio-toyoda-maga-nascar-trum...

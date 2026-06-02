@@ -1,0 +1,58 @@
+# TruthSocial / RealDonaldTrump / 2026-05-24
+
+- Posts: 18
+
+- [20:55 UTC - TEXAS, REMEMBER! Ken Paxton was a GREAT Attorney General, probably the best in the Country...](116631542989338692/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116631542989338692
+  - TEXAS, REMEMBER! Ken Paxton was a GREAT Attorney General, probably the best in the Country. He was also very loyal to your favorite President, ME, as the Dumocrats played their ult...
+- [19:41 UTC - Truth Social post 116631253441115435](116631253441115435/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116631253441115435
+  - _No text content captured._
+- [19:38 UTC - Truth Social post 116631241122246173](116631241122246173/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116631241122246173
+  - _No text content captured._
+- [19:37 UTC - Truth Social post 116631236648279838](116631236648279838/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116631236648279838
+  - _No text content captured._
+- [19:32 UTC - It is my Great Honor to endorse Ty Masterson, a fantastic Candidate running to be the next...](116631216958431697/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116631216958431697
+  - It is my Great Honor to endorse Ty Masterson, a fantastic Candidate running to be the next Governor of the Great State of Kansas, a place I love and WON BIG in 2016, 2020, and 2024...
+- [19:21 UTC - Truth Social post 116631172892605269](116631172892605269/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116631172892605269
+  - _No text content captured._
+- [18:16 UTC - If I make a deal with Iran, it will be a good and proper one, not like the one made by Oba...](116630919376298273/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116630919376298273
+  - If I make a deal with Iran, it will be a good and proper one, not like the one made by Obama, which gave Iran massive amounts of CASH, and a clear and open path to a Nuclear Weapon...
+- [14:52 UTC - Truth Social post 116630117922315548](116630117922315548/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116630117922315548
+  - _No text content captured._
+- [14:10 UTC - One of the worst deals ever made by our Country was the Iran Nuclear Deal, put forth and s...](116629952973301768/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116629952973301768
+  - One of the worst deals ever made by our Country was the Iran Nuclear Deal, put forth and signed into existence by Barack Hussein Obama and the rank amateurs of the Obama Administra...
+- [13:53 UTC - The Dumocrats don’t want to allow FISHING. Fighting us in Court. Bad for the environment. ...](116629885537147552/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116629885537147552
+  - The Dumocrats don’t want to allow FISHING. Fighting us in Court. Bad for the environment. Amazing! President DJT
+- [12:12 UTC - Truth Social post 116629488324725621](116629488324725621/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116629488324725621
+  - _No text content captured._
+- [12:12 UTC - “President Xi and President Trump are AMAZING!”](116629487458314957/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116629487458314957
+  - “President Xi and President Trump are AMAZING!”
+- [12:12 UTC - “President Xi and President Trump are AMAZING!”](116629486748113104/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116629486748113104
+  - “President Xi and President Trump are AMAZING!”
+- [12:02 UTC - Truth Social post 116629447379986678](116629447379986678/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116629447379986678
+  - _No text content captured._
+- [12:01 UTC - This is a bad (Sick!) group of people. Very destructive to our great Nation. Caused tremen...](116629446282651415/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116629446282651415
+  - This is a bad (Sick!) group of people. Very destructive to our great Nation. Caused tremendous damage through Weaponization! President DJT
+- [05:09 UTC - “Birthright Citizenship is suicide for our Country!” Mark Levin](116627825055821275/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116627825055821275
+  - “Birthright Citizenship is suicide for our Country!” Mark Levin
+- [04:23 UTC - Thank you to our great Secret Service and Law Enforcement for the swift and professional a...](116627644735216408/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116627644735216408
+  - Thank you to our great Secret Service and Law Enforcement for the swift and professional action taken this evening against a gunman near the White House, who had a violent history...
+- [01:59 UTC - The Democrats just released an “Autopsy” of their 2024 Presidential Campaign, typos and al...](116627078084596411/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116627078084596411
+  - The Democrats just released an “Autopsy” of their 2024 Presidential Campaign, typos and all, but they refused to discuss two very important words, BAD POLICY. The candidates, Sleep...

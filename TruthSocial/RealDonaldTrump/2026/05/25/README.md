@@ -1,0 +1,61 @@
+# TruthSocial / RealDonaldTrump / 2026-05-25
+
+- Posts: 19
+
+- [23:57 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116637923075105654](116637923930386496/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116637923930386496
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116637923075105654
+- [23:57 UTC - Truth Social post 116637923075105654](116637923075105654/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116637923075105654
+  - _No text content captured._
+- [21:45 UTC - The Enriched Uranium (Nuclear Dust!) will either be immediately turned over to the United ...](116637404995923093/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116637404995923093
+  - The Enriched Uranium (Nuclear Dust!) will either be immediately turned over to the United States to be brought home and destroyed or, preferably, in conjunction and coordination wi...
+- [17:35 UTC - Truth Social post 116636418903333996](116636418903333996/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116636418903333996
+  - _No text content captured._
+- [15:27 UTC - [https:// truthsocial.com/users/dpritsky /statuses/116634745889324010](https://truthsocial...](116635915970716365/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116635915970716365
+  - [https:// truthsocial.com/users/dpritsky /statuses/116634745889324010](https://truthsocial.com/users/dpritsky/statuses/116634745889324010)
+- [15:26 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116634879222745492](https://tr...](116635914092231106/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116635914092231106
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116634879222745492](https://truthsocial.com/users/IStandWithTrump47/statuses/116634879222745492)
+- [15:26 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116634820235173843](https://tr...](116635913209650795/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116635913209650795
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116634820235173843](https://truthsocial.com/users/IStandWithTrump47/statuses/116634820235173843)
+- [15:25 UTC - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116634822157963892](https://tr...](116635910005926618/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116635910005926618
+  - [https:// truthsocial.com/users/IStandWi thTrump47/statuses/116634822157963892](https://truthsocial.com/users/IStandWithTrump47/statuses/116634822157963892)
+- [12:23 UTC - Negotiations with the Islamic Republic of Iran are proceeding nicely! It will only be a Gr...](116635193825443617/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116635193825443617
+  - Negotiations with the Islamic Republic of Iran are proceeding nicely! It will only be a Great Deal for all or, no Deal at all — Back to the Battlefront and shooting, but bigger and...
+- [12:04 UTC - Mike: Thank you for your nice words on Fox. We are on the same path. Keep up the great wor...](116635119382599342/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116635119382599342
+  - Mike: Thank you for your nice words on Fox. We are on the same path. Keep up the great work. Good luck on the Show! President DJT
+- [11:41 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Dumocrats have BAD PO...](116635026701312955/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116635026701312955
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) The Dumocrats have BAD POLICY, AND BAD CANDIDATES. Other than that, they are doing quite well! President DJT
+- [11:41 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Happy Memorial Day to all...](116635026536663377/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116635026536663377
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Happy Memorial Day to all, including the Dumocrats, who disrespect our Military and all of the tremendous success t...
+- [11:41 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I laugh at all of the Dum...](116635026366826956/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116635026366826956
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I laugh at all of the Dumocrats, RINOS, and Fools who know nothing about the potential deal I am making with Iran,...
+- [11:40 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116635024735126613](116635025568002812/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116635025568002812
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116635024735126613
+- [11:40 UTC - Truth Social post 116635024735126613](116635024735126613/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116635024735126613
+  - _No text content captured._
+- [10:26 UTC - The Dumocrats have BAD POLICY, AND BAD CANDIDATES. Other than that, they are doing quite w...](116634733606433479/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116634733606433479
+  - The Dumocrats have BAD POLICY, AND BAD CANDIDATES. Other than that, they are doing quite well! President DJT
+- [10:18 UTC - Happy Memorial Day to all, including the Dumocrats, who disrespect our Military and all of...](116634703608757444/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116634703608757444
+  - Happy Memorial Day to all, including the Dumocrats, who disrespect our Military and all of the tremendous success that it has had over the last year. God Bless those that have made...
+- [10:10 UTC - I laugh at all of the Dumocrats, RINOS, and Fools who know nothing about the potential dea...](116634668906719597/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116634668906719597
+  - I laugh at all of the Dumocrats, RINOS, and Fools who know nothing about the potential deal I am making with Iran, things that haven’t even been negotiated yet, weak and ineffectiv...
+- [02:09 UTC - The voice and genius of the great Dana White (UFC!). Thank you Dana! President DJT](116632780751574963/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116632780751574963
+  - The voice and genius of the great Dana White (UFC!). Thank you Dana! President DJT

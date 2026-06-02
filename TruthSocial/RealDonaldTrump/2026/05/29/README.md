@@ -1,0 +1,82 @@
+# TruthSocial / RealDonaldTrump / 2026-05-29
+
+- Posts: 26
+
+- [21:56 UTC - It is my Great Honor to endorse MAGA Warrior, Mike Mazzei, who is running for Governor of ...](116660095799513934/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116660095799513934
+  - It is my Great Honor to endorse MAGA Warrior, Mike Mazzei, who is running for Governor of Oklahoma, a State which I love, and WON BIG — All 77 out of 77 Counties in 2016, 2020, and...
+- [21:45 UTC - Highly Respected and very popular Lieutenant Governor of South Carolina, Pam Evette, is an...](116660051960105935/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116660051960105935
+  - Highly Respected and very popular Lieutenant Governor of South Carolina, Pam Evette, is an America First Patriot who has been with me from the very beginning. She never wavered, ne...
+- [21:21 UTC - Shockingly, a Judge appointed by Barack Hussein Obama, Christopher Cooper, ruled that The ...](116659958155235373/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116659958155235373
+  - Shockingly, a Judge appointed by Barack Hussein Obama, Christopher Cooper, ruled that The Kennedy Center, which was going to close in early July for largescale renovations and cons...
+- [19:05 UTC - [https:// trumprx.gov](https://trumprx.gov)](116659423633673489/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116659423633673489
+  - [https:// trumprx.gov](https://trumprx.gov)
+- [18:10 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Highly Respected American...](116659206325360030/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116659206325360030
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Highly Respected American First Congressman, Randy Feenstra, is running for Governor of Iowa, a place I love and WO...
+- [18:10 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to e...](116659206146484408/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116659206146484408
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) It is my Great Honor to endorse America First Patriot, David Flippo, who is running to represent the fantastic peop...
+- [18:10 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Iran must agree that they...](116659205590853554/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116659205590853554
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Iran must agree that they will never have a Nuclear Weapon or Bomb. The Hormuz Strait must be immediately open, no...
+- [18:09 UTC - Truth Social post 116659203052887061](116659203052887061/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116659203052887061
+  - _No text content captured._
+- [18:09 UTC - Truth Social post 116659202486274285](116659202486274285/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116659202486274285
+  - _No text content captured._
+- [18:08 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116659199101518195](116659200660268047/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116659200660268047
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116659199101518195
+- [18:08 UTC - Truth Social post 116659199101518195](116659199101518195/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116659199101518195
+  - _No text content captured._
+- [18:08 UTC - Truth Social post 116659197799313118](116659197799313118/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116659197799313118
+  - _No text content captured._
+- [18:08 UTC - So unfair to Tina Peters — 9 years vs. ZERO! President DJT](116659197463770070/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116659197463770070
+  - So unfair to Tina Peters — 9 years vs. ZERO! President DJT
+- [18:06 UTC - Truth Social post 116659191582375401](116659191582375401/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116659191582375401
+  - _No text content captured._
+- [18:06 UTC - Truth Social post 116659190013083049](116659190013083049/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116659190013083049
+  - _No text content captured._
+- [18:05 UTC - RT [@ LeeSmith](https://truthsocial.com/@LeeSmith) Who Wants This War? Answer: Winners lik...](116659188555902468/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116659188555902468
+  - RT [@ LeeSmith](https://truthsocial.com/@LeeSmith) Who Wants This War? Answer: Winners like Trump That’s epic fury revising in fire and steel 47 years of American defeat at the han...
+- [18:03 UTC - How a Trump Loyalist Manages One of the Toughest Jobs in Diplomacy: [https://www. wsj.com/...](116659181152746981/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116659181152746981
+  - How a Trump Loyalist Manages One of the Toughest Jobs in Diplomacy: [https://www. wsj.com/world/europe/how-a-tru mp-loyalist-manages-one-of-the-toughest-jobs-in-diplomacy-d56cc978]...
+- [18:02 UTC - US ambassador: EU must honor its trade deal with Trump: [https://www. politico.eu/article/...](116659174350335809/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116659174350335809
+  - US ambassador: EU must honor its trade deal with Trump: [https://www. politico.eu/article/us-ambassa dor-andrew-puzder-eu-honor-trade-deal-donald-trump/](https://www.politico.eu/ar...
+- [17:48 UTC - Highly Respected American First Congressman, Randy Feenstra, is running for Governor of Io...](116659120590376779/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116659120590376779
+  - Highly Respected American First Congressman, Randy Feenstra, is running for Governor of Iowa, a place I love and WON BIG in 2016, 2020, and 2024, getting the highest Vote in the Hi...
+- [17:36 UTC - It is my Great Honor to endorse America First Patriot, David Flippo, who is running to rep...](116659073646327175/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116659073646327175
+  - It is my Great Honor to endorse America First Patriot, David Flippo, who is running to represent the fantastic people of Nevada’s 2nd Congressional District! He is strongly support...
+- [14:51 UTC - Iran must agree that they will never have a Nuclear Weapon or Bomb. The Hormuz Strait must...](116658423998920803/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116658423998920803
+  - Iran must agree that they will never have a Nuclear Weapon or Bomb. The Hormuz Strait must be immediately open, no tolls, for unrestricted shipping traffic, in both directions. All...
+- [11:12 UTC - Jill Biden is now out there finally admitting that she did NOT know what went wrong with S...](116657564100142546/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116657564100142546
+  - Jill Biden is now out there finally admitting that she did NOT know what went wrong with Sleepy Joe during our spectacular, and highly rated, 2024 Presidential Debate, where Joe wa...
+- [03:34 UTC - John Solomon unpacks a bombshell revelation about James Comey: [https:// justthenews.com/p...](116655761993842171/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116655761993842171
+  - John Solomon unpacks a bombshell revelation about James Comey: [https:// justthenews.com/podcasts/john- solomon-reports/john-solomon-unpacks-bombshell-revelation-about-james-comey]...
+- [03:34 UTC - Judge clears Trump’s voter citizenship checks and mail-in voting crackdown, slapping down ...](116655760562356563/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116655760562356563
+  - Judge clears Trump’s voter citizenship checks and mail-in voting crackdown, slapping down Democrats: [https:// justthenews.com/politics-polic y/elections/judge-clears-trumps-voter-...
+- [03:32 UTC - FBI and DOJ concerns on Mar-a-Lago raid bolster Florida-based anti-Trump ‘grand conspiracy...](116655756027637495/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116655756027637495
+  - FBI and DOJ concerns on Mar-a-Lago raid bolster Florida-based anti-Trump ‘grand conspiracy’ inquiry: [https:// justthenews.com/government/cou rts-law/fbi-and-doj-concerns-mar-lago-...
+- [03:26 UTC - Claude Lemieux, a true Legend of the Game, and one of the fiercest competitors Hockey has ...](116655731323552591/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116655731323552591
+  - Claude Lemieux, a true Legend of the Game, and one of the fiercest competitors Hockey has ever seen, has passed away. Claude was a friend to the family, and a tremendous “TRUMP” su...

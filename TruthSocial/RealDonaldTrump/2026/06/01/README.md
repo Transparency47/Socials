@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-01
 
-- Posts: 5
+- Posts: 6
 
+- [21:47 UTC - I had a conversation with Bibi Netanyahu today, asking him not to go into a major raid of ...](116677048828976704/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677048828976704
+  - I had a conversation with Bibi Netanyahu today, asking him not to go into a major raid of Beirut, Lebanon. He turned his Troops around. Thank you Bibi! I also had a conversation wi...
 - [19:10 UTC - Truth Social post 116676428101944121](116676428101944121/)
   - Source: https://truthsocial.com/@realDonaldTrump/116676428101944121
   - _No text content captured._

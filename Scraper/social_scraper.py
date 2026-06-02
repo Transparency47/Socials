@@ -52,6 +52,7 @@ LISTING_GENERATOR_PATH = SCRAPER_DIR / "generate_listing.py"
 
 REQUEST_TIMEOUT = 30
 REQUEST_DELAY_SECONDS = 0.35
+MEDIA_DOWNLOAD_MAX_SECONDS = 60
 DEFAULT_MAX_ITEMS = 20
 DEFAULT_BACKFILL_MAX_ITEMS = 10000
 DEFAULT_MAX_MEDIA_MB = 250
@@ -66,7 +67,8 @@ TRUTH_SOCIAL_USER_AGENT = (
     "Mozilla/5.0 (Macintosh; Intel Mac OS X 10_15_7) "
     "AppleWebKit/605.1.15 (KHTML, like Gecko) Version/26.5 Safari/605.1.15"
 )
-TRUTH_SOCIAL_MAX_RETRIES = 3
+TRUTH_SOCIAL_MAX_RETRIES = 4
+TRUTH_SOCIAL_MAX_RETRY_DELAY_SECONDS = 12
 X_COOKIES_PATH = SCRAPER_DIR / ".x_cookies.json"
 X_COOKIE_ENV_NAMES = ("X_COOKIES", "TWITTER_COOKIES", "X_COOKIE", "TWITTER_COOKIE")
 X_COOKIE_DOMAINS = ("x.com", ".x.com")
@@ -772,10 +774,13 @@ def download_media(session: requests.Session, record: ArchiveRecord, folder: Pat
                 media_dir.mkdir(parents=True, exist_ok=True)
                 tmp_path = target.with_suffix(target.suffix + ".tmp")
                 bytes_written = 0
+                started = time.monotonic()
                 with tmp_path.open("wb") as handle:
                     for chunk in response.iter_content(chunk_size=1024 * 256):
                         if not chunk:
                             continue
+                        if time.monotonic() - started > MEDIA_DOWNLOAD_MAX_SECONDS:
+                            raise TimeoutError(f"Media download exceeded {MEDIA_DOWNLOAD_MAX_SECONDS} seconds")
                         bytes_written += len(chunk)
                         if bytes_written > max_bytes:
                             raise ScrapeError(f"Media exceeded {args.max_media_mb} MB while downloading")
@@ -783,6 +788,9 @@ def download_media(session: requests.Session, record: ArchiveRecord, folder: Pat
                 tmp_path.replace(target)
                 media.local_path = f"media/{filename}"
         except Exception as exc:
+            tmp_path = locals().get("tmp_path")
+            if isinstance(tmp_path, Path) and tmp_path.exists():
+                tmp_path.unlink(missing_ok=True)
             media.download_error = f"{type(exc).__name__}: {exc}"
 
 
@@ -896,10 +904,14 @@ def truth_social_headers(username: str | None = None) -> dict[str, str]:
 
 def truth_social_cloudflare_block(response: requests.Response) -> bool:
     content_type = response.headers.get("content-type", "").lower()
-    if response.status_code != 429 or "text/html" not in content_type:
+    if response.status_code != 429:
         return False
     body = response.text[:2000].lower()
-    return "cloudflare" in body or "access denied" in body
+    if "text/html" in content_type:
+        return "cloudflare" in body or "access denied" in body
+    if "application/json" in content_type:
+        return "cloudflare" in body or "error 1015" in body
+    return False
 
 
 def truth_social_get(
@@ -915,13 +927,23 @@ def truth_social_get(
         if not truth_social_cloudflare_block(response) or attempt == TRUTH_SOCIAL_MAX_RETRIES - 1:
             return response
         retry_after = response.headers.get("retry-after")
-        delay = int(retry_after) if retry_after and retry_after.isdigit() else 1
-        time.sleep(max(delay, 1))
+        requested_delay = int(retry_after) if retry_after and retry_after.isdigit() else 1
+        delay = min(max(requested_delay, 1), TRUTH_SOCIAL_MAX_RETRY_DELAY_SECONDS)
+        print(
+            f"TruthSocial/{username}: Cloudflare throttle; retrying in {delay}s "
+            f"({attempt + 1}/{TRUTH_SOCIAL_MAX_RETRIES})",
+            flush=True,
+        )
+        time.sleep(delay)
     assert response is not None
     return response
 
 
-def scrape_truth_social(session: requests.Session, account: str, args: argparse.Namespace) -> list[ArchiveRecord]:
+def iter_truth_social_records(
+    session: requests.Session,
+    account: str,
+    args: argparse.Namespace,
+) -> Iterable[ArchiveRecord]:
     username = strip_handle(account)
     lookup_url = "https://truthsocial.com/api/v1/accounts/lookup"
     response = truth_social_get(session, lookup_url, username=username, params={"acct": username})
@@ -933,21 +955,26 @@ def scrape_truth_social(session: requests.Session, account: str, args: argparse.
     profile = response.json()
 
     account_id = profile["id"]
-    records: list[ArchiveRecord] = []
-    max_id: str | None = None
+    max_id: str | None = getattr(args, "truth_social_start_max_id", None)
     pages = 0
-    while len(records) < args.max_items:
+    yielded = 0
+    while yielded < args.max_items:
         pages += 1
         if args.max_pages is not None and pages > args.max_pages:
             break
         params = {
-            "limit": min(40, max(args.max_items - len(records), 1)),
+            "limit": min(40, max(args.max_items - yielded, 1)),
             "exclude_replies": "false" if args.include_replies else "true",
             "with_muted": "true",
         }
         if max_id:
             params["max_id"] = max_id
         statuses_url = f"https://truthsocial.com/api/v1/accounts/{account_id}/statuses"
+        print(
+            f"TruthSocial/{account}: fetching page {pages}"
+            f"{f' after {max_id}' if max_id else ''}",
+            flush=True,
+        )
         result = truth_social_get(session, statuses_url, username=username, params=params)
         if truth_social_cloudflare_block(result):
             raise ScrapeError("Truth Social Cloudflare access denied (HTTP 429), not an API rate limit.")
@@ -955,40 +982,63 @@ def scrape_truth_social(session: requests.Session, account: str, args: argparse.
             raise RateLimitError(rate_limit_message(result, "Truth Social"))
         result.raise_for_status()
         statuses = result.json()
+        print(f"TruthSocial/{account}: page {pages} returned {len(statuses)} statuses", flush=True)
         if not statuses:
             break
 
+        stop_paging = False
+        page_last_id = str(statuses[-1].get("id"))
         for status in statuses:
-            if len(records) >= args.max_items:
+            if yielded >= args.max_items:
                 break
             content = html_to_markdown(status.get("content"))
             post_id = str(status.get("id"))
-            records.append(
-                ArchiveRecord(
-                    platform="truthsocial",
-                    account=account,
-                    account_display_name=profile.get("display_name") or profile.get("username"),
-                    account_id=account_id,
-                    account_url=profile.get("url"),
-                    post_id=post_id,
-                    url=status.get("url") or f"https://truthsocial.com/@{username}/{post_id}",
-                    title=short_title(content, f"Truth Social post {post_id}"),
-                    text=content,
-                    published=parse_datetime(status.get("created_at")),
-                    accessed=now_utc(),
-                    language=status.get("language"),
-                    metrics={
-                        "replies": status.get("replies_count"),
-                        "reblogs": status.get("reblogs_count"),
-                        "favorites": status.get("favourites_count"),
-                    },
-                    media=truth_social_media(status.get("media_attachments") or []),
-                    raw={"profile": profile, "status": status},
+            published = parse_datetime(status.get("created_at"))
+            since = getattr(args, "since_dt", None)
+            if since and published and published < since:
+                print(
+                    f"TruthSocial/{account}: reached {published.date()} before since boundary {since.date()}",
+                    flush=True,
                 )
+                stop_paging = True
+                break
+            yielded += 1
+            print(
+                f"TruthSocial/{account}: queued {post_id}"
+                f" ({published.date() if published else 'unknown date'})",
+                flush=True,
             )
-        max_id = str(statuses[-1].get("id"))
+            record = ArchiveRecord(
+                platform="truthsocial",
+                account=account,
+                account_display_name=profile.get("display_name") or profile.get("username"),
+                account_id=account_id,
+                account_url=profile.get("url"),
+                post_id=post_id,
+                url=status.get("url") or f"https://truthsocial.com/@{username}/{post_id}",
+                title=short_title(content, f"Truth Social post {post_id}"),
+                text=content,
+                published=published,
+                accessed=now_utc(),
+                language=status.get("language"),
+                metrics={
+                    "replies": status.get("replies_count"),
+                    "reblogs": status.get("reblogs_count"),
+                    "favorites": status.get("favourites_count"),
+                },
+                media=truth_social_media(status.get("media_attachments") or []),
+                raw={"profile": profile, "status": status},
+            )
+            setattr(record, "_truth_social_page_last_id", page_last_id)
+            yield record
+        if stop_paging:
+            break
+        max_id = page_last_id
         time.sleep(REQUEST_DELAY_SECONDS)
-    return records
+
+
+def scrape_truth_social(session: requests.Session, account: str, args: argparse.Namespace) -> list[ArchiveRecord]:
+    return list(iter_truth_social_records(session, account, args))
 
 
 def x_bearer_token() -> str | None:
@@ -2270,6 +2320,45 @@ def run(args: argparse.Namespace) -> int:
                     save_state(state)
                     refresh_listing()
                     time.sleep(REQUEST_DELAY_SECONDS)
+            except Exception as exc:
+                message = f"{canonical_platform_dir(platform)}/{account}: {type(exc).__name__}: {exc}"
+                state["last_errors"].append(message)
+                print(f"ERROR {message}", file=sys.stderr, flush=True)
+            save_state(state)
+            continue
+
+        if platform == "truthsocial" and args.backfill and getattr(args, "since_dt", None):
+            truth_cursors = state.setdefault("truthsocial_backfill_cursors", {})
+            cursor_key = f"{account}:{args.since_dt.date().isoformat()}"
+            args.truth_social_start_max_id = truth_cursors.get(cursor_key)
+            try:
+                for record in iter_truth_social_records(session, account, args):
+                    if not in_date_window(record.published, args):
+                        continue
+                    key = state_key(record)
+                    already_seen = key in state["seen_posts"]
+                    if already_seen and not args.force:
+                        seen += 1
+                        continue
+                    changed = archive_record(session, record, state, args)
+                    if changed:
+                        archived += 1
+                        print(f"Archived: {record.url}", flush=True)
+                        day_dir = output_dir_for(record).parent
+                        if write_if_changed(day_dir / "README.md", day_readme_markdown(day_dir)):
+                            print(f"Wrote {day_dir.relative_to(ROOT_DIR)}/README.md", flush=True)
+                    else:
+                        seen += 1
+                    page_last_id = getattr(record, "_truth_social_page_last_id", None)
+                    if page_last_id and record.post_id == page_last_id:
+                        truth_cursors[cursor_key] = page_last_id
+                    save_state(state)
+                    refresh_listing()
+                    time.sleep(REQUEST_DELAY_SECONDS)
+            except RateLimitError as exc:
+                message = f"{canonical_platform_dir(platform)}/{account}: {exc}"
+                state["last_errors"].append(message)
+                print(f"ERROR {message}", file=sys.stderr, flush=True)
             except Exception as exc:
                 message = f"{canonical_platform_dir(platform)}/{account}: {type(exc).__name__}: {exc}"
                 state["last_errors"].append(message)

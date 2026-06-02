@@ -1,0 +1,10 @@
+<!-- source: https://truthsocial.com/@realDonaldTrump/116607551580410444 -->
+<!-- platform: TruthSocial -->
+<!-- account: RealDonaldTrump -->
+<!-- post_id: 116607551580410444 -->
+<!-- date_published: 2026-05-20T15:13:52.696000+00:00 -->
+<!-- date_accessed: 2026-06-02T12:48:08.567824+00:00 -->
+
+# Shockingly, Republicans have kept the very important position of “Parliamentarian” in the ...
+
+Shockingly, Republicans have kept the very important position of “Parliamentarian” in the hands of a woman, Elizabeth MacDonough, who was appointed, long ago, by Barack Hussein Obama and a vicious Lunatic known as Senator Harry Reid, who ran the Senate for the Dumocrats with an “iron fist.” Over the years, she has been brutal to Republicans, but not so to the Dumocrats — So why has she not been replaced? There are many fair people who would be qualified for that vital job. The Republicans play a very soft game compared to the Dumocrats. It is their single biggest disadvantage in politics. The Dumocrats cheat, lie, and steal, especially when it comes to Votes in Elections, but stick together, whereas the Republicans allow the Elizabeth MacDonoughs of the World to stay in power, and brutalize us. We need THE SAVE AMERICA ACT passed, and NOW — And, likewise, kill the Filibuster, which would give us everything! If we don’t pass at least one of these two provisions quickly, you will never see another Republican President again. The Dumocrats will end up with 2 additional States, D.C. and Puerto Rico, and all that entails, including 4 Senators, many Congressmen, and many additional Electoral Votes, and they will also get their dream of a packed United States Supreme Court with their most favorite number — 21 Justices. The Dumocrats will eliminate the Filibuster on the First Day that they get an opportunity to do so. The Republicans aren’t doing it because they say the Dumocrats will never do it, but the Republicans are WRONG. Get smart and tough Republicans, or you’ll all be looking for a job much sooner than you thought possible! President DONALD J. TRUMP

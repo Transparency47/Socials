@@ -1,0 +1,166 @@
+# TruthSocial / RealDonaldTrump / 2026-05-18
+
+- Posts: 54
+
+- [23:57 UTC - Truth Social post 116598284369096086](116598284369096086/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116598284369096086
+  - _No text content captured._
+- [23:31 UTC - Truth Social post 116598182261395364](116598182261395364/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116598182261395364
+  - _No text content captured._
+- [23:26 UTC - Truth Social post 116598165350183733](116598165350183733/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116598165350183733
+  - _No text content captured._
+- [23:24 UTC - Truth Social post 116598157997372799](116598157997372799/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116598157997372799
+  - _No text content captured._
+- [23:24 UTC - Truth Social post 116598155297098066](116598155297098066/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116598155297098066
+  - _No text content captured._
+- [23:23 UTC - Truth Social post 116598153081743681](116598153081743681/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116598153081743681
+  - _No text content captured._
+- [23:22 UTC - Truth Social post 116598148976240278](116598148976240278/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116598148976240278
+  - _No text content captured._
+- [20:04 UTC - Truth Social post 116597368849997374](116597368849997374/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116597368849997374
+  - _No text content captured._
+- [20:02 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) In Maryland, they sent ou...](116597363829059035/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116597363829059035
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) In Maryland, they sent out 500,000 Illegal Mail In Ballots, and they got caught! So now, they’re going to send out...
+- [20:02 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I have been asked by the ...](116597363142207992/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116597363142207992
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I have been asked by the Emir of Qatar, Tamim bin Hamad Al Thani, the Crown Prince of Saudi Arabia, Mohammed bin Sa...
+- [19:44 UTC - Congressman Mike Simpson is a Fantastic Advocate for Idaho’s 2nd Congressional District! M...](116597291788723732/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116597291788723732
+  - Congressman Mike Simpson is a Fantastic Advocate for Idaho’s 2nd Congressional District! Mike served as the Highly Respected Speaker of the Idaho House of Representatives, prior to...
+- [19:44 UTC - Congressman Rick Allen is an incredible Representative of Georgia’s 12th Congressional Dis...](116597290806570176/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116597290806570176
+  - Congressman Rick Allen is an incredible Representative of Georgia’s 12th Congressional District! As a Member of the POWERFUL House Energy and Commerce Committee, Rick is working ti...
+- [19:42 UTC - In Maryland, they sent out 500,000 Illegal Mail In Ballots, and they got caught! So now, t...](116597282587201743/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116597282587201743
+  - In Maryland, they sent out 500,000 Illegal Mail In Ballots, and they got caught! So now, they’re going to send out 500,000 more Mail In Ballots, but nobody knows what’s happening w...
+- [19:01 UTC - I have been asked by the Emir of Qatar, Tamim bin Hamad Al Thani, the Crown Prince of Saud...](116597121700043134/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116597121700043134
+  - I have been asked by the Emir of Qatar, Tamim bin Hamad Al Thani, the Crown Prince of Saudi Arabia, Mohammed bin Salman Al Saud, and the President of the United Arab Emirates, Moha...
+- [18:10 UTC - Congressman Mike Kelly, who has been with us from the very beginning, is a Tremendous Cham...](116596919606833613/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596919606833613
+  - Congressman Mike Kelly, who has been with us from the very beginning, is a Tremendous Champion of Pennsylvania’s 16th Congressional District! As a Senior Member of the POWERFUL Hou...
+- [18:09 UTC - Congressman Glenn “GT” Thompson is a Tremendous Champion for Pennsylvania’s 15th Congressi...](116596918461615816/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596918461615816
+  - Congressman Glenn “GT” Thompson is a Tremendous Champion for Pennsylvania’s 15th Congressional District! As Chairman of the House Agriculture Committee, GT is a strong and effectiv...
+- [18:08 UTC - Congressman Guy Reschenthaler is doing an incredible job representing Pennsylvania’s 14th ...](116596915281576526/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596915281576526
+  - Congressman Guy Reschenthaler is doing an incredible job representing Pennsylvania’s 14th Congressional District! As the Chief Deputy Whip, Guy is working closely with me to Advanc...
+- [18:07 UTC - Congressman John Joyce is a fantastic Champion for Pennsylvania’s 13th Congressional Distr...](116596908950858501/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596908950858501
+  - Congressman John Joyce is a fantastic Champion for Pennsylvania’s 13th Congressional District! An Original Member of my Pennsylvania Federal Leadership Team, John is fighting hard...
+- [18:06 UTC - Congressman Lloyd Smucker is a terrific Representative for the wonderful people of Pennsyl...](116596905764472591/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596905764472591
+  - Congressman Lloyd Smucker is a terrific Representative for the wonderful people of Pennsylvania’s 11th Congressional District! A Proven Leader, Lloyd served as a Highly Respected S...
+- [18:06 UTC - Congressman Scott Perry is a tremendous Representative for the Great People of Pennsylvani...](116596904558108860/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596904558108860
+  - Congressman Scott Perry is a tremendous Representative for the Great People of Pennsylvania’s 10th Congressional District! A retired Army Brigadier General, Scott is a MAGA Warrior...
+- [18:04 UTC - Congressman Dan Meuser is an America First Patriot who is doing an incredible job represen...](116596896925470225/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596896925470225
+  - Congressman Dan Meuser is an America First Patriot who is doing an incredible job representing Pennsylvania’s 9th Congressional District! A very successful Businessman, former Secr...
+- [18:02 UTC - Congressman Rob Bresnahan is a terrific Representative of Pennsylvania’s 8th Congressional...](116596889981654017/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596889981654017
+  - Congressman Rob Bresnahan is a terrific Representative of Pennsylvania’s 8th Congressional District! A Highly Successful Businessman, Rob is working hard to Create Jobs, Cut Taxes...
+- [18:02 UTC - Congressman Ryan Mackenzie is an America First Patriot, who is doing an incredible job rep...](116596888179070875/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596888179070875
+  - Congressman Ryan Mackenzie is an America First Patriot, who is doing an incredible job representing the Great People of Pennsylvania’s 7th Congressional District! In Congress, Ryan...
+- [18:01 UTC - Highly Respected and very popular State Treasurer, Stacy Garrity, is running to be the nex...](116596886701876953/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596886701876953
+  - Highly Respected and very popular State Treasurer, Stacy Garrity, is running to be the next Governor of the GREAT Commonwealth of Pennsylvania, a very special place to me in that w...
+- [18:01 UTC - Congressman Cliff Bentz is a Tremendous Champion for Oregon’s 2nd Congressional District! ...](116596884228601762/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596884228601762
+  - Congressman Cliff Bentz is a Tremendous Champion for Oregon’s 2nd Congressional District! A Proven Leader, Cliff has served his Community well as a Highly Respected State Legislato...
+- [18:00 UTC - It is my Great Honor to endorse America First Patriot, Ralph Alvarado, M.D., who is runnin...](116596882765269968/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596882765269968
+  - It is my Great Honor to endorse America First Patriot, Ralph Alvarado, M.D., who is running to represent the incredible people of Kentucky’s 6th Congressional District. A true frie...
+- [18:00 UTC - Congressman Hal Rogers is an incredibly strong advocate for the wonderful people of Kentuc...](116596881163776390/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596881163776390
+  - Congressman Hal Rogers is an incredibly strong advocate for the wonderful people of Kentucky’s 5th Congressional District! The Dean of the U.S. House, Hal has never stopped fightin...
+- [17:59 UTC - Third Rate Congressman Thomas Massie, a Weak and Pathetic RINO from the Great Commonwealth...](116596880033987241/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596880033987241
+  - Third Rate Congressman Thomas Massie, a Weak and Pathetic RINO from the Great Commonwealth of Kentucky, a place I love, and won big SIX TIMES, including all Primaries, must be thro...
+- [17:59 UTC - Congressman Brett Guthrie is a Tremendous Champion for Kentucky’s 2nd Congressional Distri...](116596878160158798/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596878160158798
+  - Congressman Brett Guthrie is a Tremendous Champion for Kentucky’s 2nd Congressional District! As the Chairman of the House Energy and Commerce Committee, Brett is working tirelessl...
+- [17:59 UTC - Congressman James Comer is a fantastic Representative for the Great People of Kentucky’s 1...](116596877181238370/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596877181238370
+  - Congressman James Comer is a fantastic Representative for the Great People of Kentucky’s 1st Congressional District! As the Chairman of the House Oversight Committee, James is figh...
+- [17:58 UTC - Proven Political Winner Andy Barr is running for the United States Senate in the Great Com...](116596875891253854/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596875891253854
+  - Proven Political Winner Andy Barr is running for the United States Senate in the Great Commonwealth of Kentucky, a place I love and WON BIG, six times, including Primaries, in 2016...
+- [17:37 UTC - Congressman Russ Fulcher is a Tremendous Champion for Idaho’s 1st Congressional District! ...](116596789847728321/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596789847728321
+  - Congressman Russ Fulcher is a Tremendous Champion for Idaho’s 1st Congressional District! A Fourth Generation Idahoan, Russ served as a State Senator for 10 years prior to becoming...
+- [17:36 UTC - Scott Bedke has been a tremendous Lieutenant Governor of Idaho, a place I love and WON BIG...](116596788604142327/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596788604142327
+  - Scott Bedke has been a tremendous Lieutenant Governor of Idaho, a place I love and WON BIG in 2016, 2020, and 2024! A very successful Businessman, Cattle Rancher, and Highly Respec...
+- [17:36 UTC - Brad Little is the strong and highly popular Governor of Idaho, a State I love and WON BIG...](116596787690387334/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596787690387334
+  - Brad Little is the strong and highly popular Governor of Idaho, a State I love and WON BIG in 2016, 2020, and 2024! As Governor, Brad is fighting tirelessly to Champion Idaho Value...
+- [17:36 UTC - Senator Jim Risch is doing a tremendous job representing the incredible people of Idaho, a...](116596786617753204/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596786617753204
+  - Senator Jim Risch is doing a tremendous job representing the incredible people of Idaho, a State I love, and WON BIG, in 2016, 2020, and 2024! As the Chair of the Senate Foreign Re...
+- [17:35 UTC - Congressman Clay Fuller is a Tremendous Champion for Georgia’s 14th Congressional District...](116596785594736554/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596785594736554
+  - Congressman Clay Fuller is a Tremendous Champion for Georgia’s 14th Congressional District! Previously District Attorney for the Lookout Mountain Judicial Circuit, and Air National...
+- [17:35 UTC - It is my Great Honor to endorse Highly Respected State Representative Houston Gaines, who ...](116596784273199801/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596784273199801
+  - It is my Great Honor to endorse Highly Respected State Representative Houston Gaines, who is running to represent the Incredible People of Georgia’s 10th Congressional District. An...
+- [17:35 UTC - Congressman Andrew Clyde is doing a truly fantastic job representing the Great People of G...](116596783240681689/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596783240681689
+  - Congressman Andrew Clyde is doing a truly fantastic job representing the Great People of Georgia’s 9th Congressional District! A Brave U.S. Navy Veteran, Andrew knows the Wisdom an...
+- [17:35 UTC - Congressman Austin Scott is doing a truly fantastic job representing the wonderful people ...](116596781952316386/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596781952316386
+  - Congressman Austin Scott is doing a truly fantastic job representing the wonderful people of Georgia’s 8th Congressional District! As Vice Chairman of the House Agriculture Committ...
+- [17:34 UTC - Congressman Rich McCormick is an incredibly Strong Advocate for the Great People of Georgi...](116596780652861457/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596780652861457
+  - Congressman Rich McCormick is an incredibly Strong Advocate for the Great People of Georgia’s 7th Congressional District! A distinguished Emergency Room Doctor and Marine Helicopte...
+- [17:34 UTC - Congressman Brian Jack, who has been with us from the very beginning, is a MAGA Warrior an...](116596779505000504/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596779505000504
+  - Congressman Brian Jack, who has been with us from the very beginning, is a MAGA Warrior and Tremendous Champion of Georgia’s 3rd Congressional District! In my First Term, Brian str...
+- [17:34 UTC - It is my Great Honor to endorse MAGA Warrior, Jim Kingston, who is running to represent th...](116596778354691139/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596778354691139
+  - It is my Great Honor to endorse MAGA Warrior, Jim Kingston, who is running to represent the fantastic people of Georgia’s 1st Congressional District. A very successful Businessman,...
+- [17:33 UTC - Highly Respected and very popular Lieutenant Governor, Burt Jones, is running to be the ne...](116596776798992620/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596776798992620
+  - Highly Respected and very popular Lieutenant Governor, Burt Jones, is running to be the next Governor of the Great State of Georgia, a very special place to me in that we had a BIG...
+- [17:31 UTC - Congressman Dale Strong is a terrific Representative for the incredible people of Alabama’...](116596769671488963/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596769671488963
+  - Congressman Dale Strong is a terrific Representative for the incredible people of Alabama’s 5th Congressional District! Dale has a Strong Record of SUCCESS, and compelling support...
+- [17:31 UTC - Congressman Robert Aderholt is a Tremendous Champion for Alabama’s 4th Congressional Distr...](116596768206267512/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596768206267512
+  - Congressman Robert Aderholt is a Tremendous Champion for Alabama’s 4th Congressional District! As a Member of the POWERFUL House Appropriations Committee, Robert knows the America...
+- [17:31 UTC - Congressman Mike Rogers is doing a truly fantastic job representing the Great People of Al...](116596766766629053/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596766766629053
+  - Congressman Mike Rogers is doing a truly fantastic job representing the Great People of Alabama’s 3rd Congressional District! As the first Chairman of the House Armed Services Comm...
+- [17:29 UTC - John Wahl, the Highly Respected former Chairman of the Alabama GOP, is running for Lieuten...](116596760317568079/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596760317568079
+  - John Wahl, the Highly Respected former Chairman of the Alabama GOP, is running for Lieutenant Governor of Alabama. John has been with us from the very beginning, and has been key t...
+- [17:28 UTC - Highly Respected Senator, “Coach” Tommy Tuberville, is running for Governor of Alabama, a ...](116596758110436520/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596758110436520
+  - Highly Respected Senator, “Coach” Tommy Tuberville, is running for Governor of Alabama, a place I love and WON BIG, six times, including Primaries, in 2016, 2020, and 2024! A forme...
+- [17:28 UTC - Congressman Barry Moore, an America First Patriot who has been with me from the very begin...](116596755023574758/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596755023574758
+  - Congressman Barry Moore, an America First Patriot who has been with me from the very beginning (He was the first Elected Official in the Country to Endorse me!), is running for the...
+- [14:47 UTC - The worst Congressman in the long and storied history of the Republican Party, is Thomas M...](116596124197789662/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596124197789662
+  - The worst Congressman in the long and storied history of the Republican Party, is Thomas Massie. He is an obstructionist and a fool. Vote him out of office tomorrow, Tuesday. It wi...
+- [14:40 UTC - If Iran surrenders, admits their Navy is gone and resting at the bottom of the sea, and th...](116596094940250402/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116596094940250402
+  - If Iran surrenders, admits their Navy is gone and resting at the bottom of the sea, and their Air Force is no longer with us, and if their entire Military walks out of Tehran, weap...
+- [13:03 UTC - Truth Social post 116595715401137648](116595715401137648/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116595715401137648
+  - _No text content captured._
+- [13:02 UTC - Truth Social post 116595711132847333](116595711132847333/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116595711132847333
+  - _No text content captured._
+- [13:00 UTC - Truth Social post 116595704187387019](116595704187387019/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116595704187387019
+  - _No text content captured._

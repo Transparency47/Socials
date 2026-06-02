@@ -1,0 +1,127 @@
+# TruthSocial / RealDonaldTrump / 2026-05-17
+
+- Posts: 41
+
+- [21:26 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Exclusive — Greek Energy ...](116592030286032733/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116592030286032733
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Exclusive — Greek Energy Minister: Trump’s ‘Trademark Move’ with Allies and Adversaries Alike Is Energy Diplomacy:...
+- [21:26 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Third Rate Congressman Th...](116592029590361745/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116592029590361745
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Third Rate Congressman Thomas Massie, a Weak and Pathetic RINO from the Great Commonwealth of Kentucky, a place I l...
+- [21:26 UTC - Truth Social post 116592028917390373](116592028917390373/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116592028917390373
+  - _No text content captured._
+- [21:26 UTC - Truth Social post 116592028338358108](116592028338358108/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116592028338358108
+  - _No text content captured._
+- [21:16 UTC - Truth Social post 116591989539415412](116591989539415412/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116591989539415412
+  - _No text content captured._
+- [21:14 UTC - Truth Social post 116591982606626739](116591982606626739/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116591982606626739
+  - _No text content captured._
+- [21:10 UTC - Truth Social post 116591966487023634](116591966487023634/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116591966487023634
+  - _No text content captured._
+- [21:09 UTC - Truth Social post 116591962233203741](116591962233203741/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116591962233203741
+  - _No text content captured._
+- [21:06 UTC - Truth Social post 116591951496475525](116591951496475525/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116591951496475525
+  - _No text content captured._
+- [21:01 UTC - Truth Social post 116591931335249221](116591931335249221/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116591931335249221
+  - _No text content captured._
+- [20:56 UTC - Truth Social post 116591911510294644](116591911510294644/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116591911510294644
+  - _No text content captured._
+- [20:55 UTC - Truth Social post 116591908165854374](116591908165854374/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116591908165854374
+  - _No text content captured._
+- [20:54 UTC - Exclusive — Greek Energy Minister: Trump’s ‘Trademark Move’ with Allies and Adversaries Al...](116591904858301243/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116591904858301243
+  - Exclusive — Greek Energy Minister: Trump’s ‘Trademark Move’ with Allies and Adversaries Alike Is Energy Diplomacy: [https://www. breitbart.com/politics/2026/05 /17/exclusive-greek-...
+- [20:54 UTC - Truth Social post 116591903195606393](116591903195606393/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116591903195606393
+  - _No text content captured._
+- [20:53 UTC - Truth Social post 116591901587847680](116591901587847680/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116591901587847680
+  - _No text content captured._
+- [20:53 UTC - Truth Social post 116591899358572000](116591899358572000/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116591899358572000
+  - _No text content captured._
+- [20:52 UTC - Truth Social post 116591894508192334](116591894508192334/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116591894508192334
+  - _No text content captured._
+- [20:51 UTC - Truth Social post 116591893780665130](116591893780665130/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116591893780665130
+  - _No text content captured._
+- [20:51 UTC - Truth Social post 116591892659828831](116591892659828831/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116591892659828831
+  - _No text content captured._
+- [20:51 UTC - Truth Social post 116591891745190327](116591891745190327/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116591891745190327
+  - _No text content captured._
+- [20:51 UTC - Truth Social post 116591890919627145](116591890919627145/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116591890919627145
+  - _No text content captured._
+- [20:50 UTC - Truth Social post 116591886804530879](116591886804530879/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116591886804530879
+  - _No text content captured._
+- [20:48 UTC - Truth Social post 116591882338593690](116591882338593690/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116591882338593690
+  - _No text content captured._
+- [20:48 UTC - Truth Social post 116591879651506838](116591879651506838/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116591879651506838
+  - _No text content captured._
+- [20:47 UTC - Truth Social post 116591877860242804](116591877860242804/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116591877860242804
+  - _No text content captured._
+- [20:47 UTC - Truth Social post 116591875772379598](116591875772379598/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116591875772379598
+  - _No text content captured._
+- [20:17 UTC - Third Rate Congressman Thomas Massie, a Weak and Pathetic RINO from the Great Commonwealth...](116591756607268698/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116591756607268698
+  - Third Rate Congressman Thomas Massie, a Weak and Pathetic RINO from the Great Commonwealth of Kentucky, a place I love, and won big SIX TIMES, including all Primaries, must be thro...
+- [20:05 UTC - Truth Social post 116591711156075694](116591711156075694/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116591711156075694
+  - _No text content captured._
+- [20:05 UTC - Truth Social post 116591709495947327](116591709495947327/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116591709495947327
+  - _No text content captured._
+- [20:03 UTC - Truth Social post 116591703590602686](116591703590602686/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116591703590602686
+  - _No text content captured._
+- [20:02 UTC - Truth Social post 116591700539958525](116591700539958525/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116591700539958525
+  - _No text content captured._
+- [20:02 UTC - Truth Social post 116591700060147779](116591700060147779/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116591700060147779
+  - _No text content captured._
+- [16:46 UTC - [https:// truthsocial.com/@realDonaldTru mp/116584918663563894](https://truthsocial.com/@r...](116590928955448990/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116590928955448990
+  - [https:// truthsocial.com/@realDonaldTru mp/116584918663563894](https://truthsocial.com/@realDonaldTrump/116584918663563894) .
+- [16:42 UTC - For Iran, the Clock is Ticking, and they better get moving, FAST, or there won’t be anythi...](116590914302000241/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116590914302000241
+  - For Iran, the Clock is Ticking, and they better get moving, FAST, or there won’t be anything left of them. TIME IS OF THE ESSENCE! President DJT
+- [12:30 UTC - I HOPE EVERYBODY AT REDEDICATE 250 IS HAVING A GOOD TIME. IF THERE IS ANYTHING I CAN DO TO...](116589922190393582/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116589922190393582
+  - I HOPE EVERYBODY AT REDEDICATE 250 IS HAVING A GOOD TIME. IF THERE IS ANYTHING I CAN DO TO HELP, JUST HAVE OUR BEAUTIFUL, BOTH INSIDE AND OUT, RACHAEL C.D., GIVE ME A CALL. I’M BAC...
+- [11:58 UTC - Bad Congressman Tom Massie voted against Tax Cuts, the Border Wall, our Military and Law E...](116589795851243755/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116589795851243755
+  - Bad Congressman Tom Massie voted against Tax Cuts, the Border Wall, our Military and Law Enforcement. Actually, he voted against almost everything that is good. The Worst Republica...
+- [04:54 UTC - A BIG NIGHT IN POLITICS. THANK YOU TO ALL! President DONALD J. TRUMP](116588128076806291/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116588128076806291
+  - A BIG NIGHT IN POLITICS. THANK YOU TO ALL! President DONALD J. TRUMP
+- [04:40 UTC - Tom Massie of Kentucky, the worst and most unreliable Republican Congressman in the histor...](116588075000941546/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116588075000941546
+  - Tom Massie of Kentucky, the worst and most unreliable Republican Congressman in the history of our Country, is an even bigger insult to our Nation than Senator Bill Cassidy of Loui...
+- [04:12 UTC - Great victory speech tonight by Julia!!! President DJT [https://www. youtube.com/watch?v=2...](116587963981678416/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116587963981678416
+  - Great victory speech tonight by Julia!!! President DJT [https://www. youtube.com/watch?v=299wWZKTdu s](https://www.youtube.com/watch?v=299wWZKTdus)
+- [02:52 UTC - Bill Cassidy, after falsely using his “relationship” with me during his political career, ...](116587648609362496/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116587648609362496
+  - Bill Cassidy, after falsely using his “relationship” with me during his political career, and winning Elections because of it, voted to impeach me on preposterous charges that were...
+- [02:43 UTC - Congratulations to Congresswoman Julia Letlow on a fantastic race, beating an Incumbent Se...](116587615659706793/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116587615659706793
+  - Congratulations to Congresswoman Julia Letlow on a fantastic race, beating an Incumbent Senator by Record Setting Numbers. This is the first time in History that a sitting Senator...

@@ -215,6 +215,7 @@ def upsert_attachment_metadata(markdown: str, remote_by_index: dict[int, tuple[s
 def upload_file(path: Path, key: str, config: R2Config, content_type: str | None = None) -> None:
     try:
         import boto3
+        from botocore.config import Config
     except ImportError as exc:
         raise RuntimeError("boto3 is required for R2 uploads. Install Scraper/requirements.txt.") from exc
 
@@ -235,5 +236,6 @@ def upload_file(path: Path, key: str, config: R2Config, content_type: str | None
         aws_access_key_id=config.access_key_id,
         aws_secret_access_key=config.secret_access_key,
         region_name="auto",
+        config=Config(connect_timeout=10, read_timeout=60, retries={"max_attempts": 3, "mode": "standard"}),
     )
     client.upload_file(str(path), config.bucket, key, ExtraArgs=extra_args)

@@ -1,0 +1,73 @@
+# TruthSocial / RealDonaldTrump / 2026-05-27
+
+- Posts: 23
+
+- [22:54 UTC - Prime Minister Nikol Pashinyan, of Armenia, a great friend and Leader, is making his Count...](116648998520896910/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116648998520896910
+  - Prime Minister Nikol Pashinyan, of Armenia, a great friend and Leader, is making his Country strong, wealthy, and very secure! Nikol completely shares my vision of PEACE and PROSPE...
+- [22:42 UTC - Gary Gensler and the “Anti-Crypto Army” nearly DESTROYED the American Crypto Industry by d...](116648950505497613/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116648950505497613
+  - Gary Gensler and the “Anti-Crypto Army” nearly DESTROYED the American Crypto Industry by driving Bitcoin, Crypto Perpetuals, and INNOVATION offshore, but “TRUMP” SAVED IT. America...
+- [18:13 UTC - I am pleased to announce the nomination of Matthew Byrne to serve as Judge on the U.S. Dis...](116647893653015989/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116647893653015989
+  - I am pleased to announce the nomination of Matthew Byrne to serve as Judge on the U.S. District Court for the Southern District of Ohio. As Judge on the Ohio Twelfth District Court...
+- [17:47 UTC - Truth Social post 116647792196617911](116647792196617911/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116647792196617911
+  - _No text content captured._
+- [14:39 UTC - Congratulations to the Dumocrat Party! Al Green, one of the most mentally deficient Congre...](116647052759264072/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116647052759264072
+  - Congratulations to the Dumocrat Party! Al Green, one of the most mentally deficient Congressmen in the history of our Country, has lost, in a landslide, his seat in Congress - But...
+- [14:34 UTC - Truth Social post 116647031194587895](116647031194587895/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116647031194587895
+  - _No text content captured._
+- [14:32 UTC - Truth Social post 116647023388462416](116647023388462416/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116647023388462416
+  - _No text content captured._
+- [14:30 UTC - This Weak on Crime, Open Borders Dumocrat, can never be allowed to represent the Great Peo...](116647016538665889/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116647016538665889
+  - This Weak on Crime, Open Borders Dumocrat, can never be allowed to represent the Great People of Texas. His “values” are the exact opposite!!! President DJT
+- [14:22 UTC - Truth Social post 116646986947580696](116646986947580696/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116646986947580696
+  - _No text content captured._
+- [14:22 UTC - Truth Social post 116646986034531461](116646986034531461/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116646986034531461
+  - _No text content captured._
+- [12:54 UTC - Thank you America for this unprecedented support!!! President DJT [https://www. thegateway...](116646638944585333/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116646638944585333
+  - Thank you America for this unprecedented support!!! President DJT [https://www. thegatewaypundit.com/2026/05/t rump-dynasty-president-trump-goes-118-118-primary/](https://www.thega...
+- [12:08 UTC - Truth Social post 116646459723207699](116646459723207699/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116646459723207699
+  - _No text content captured._
+- [12:07 UTC - Truth Social post 116646454021578428](116646454021578428/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116646454021578428
+  - _No text content captured._
+- [12:07 UTC - Truth Social post 116646453319544948](116646453319544948/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116646453319544948
+  - _No text content captured._
+- [11:30 UTC - Congratulations to Ken Paxton on such a tremendous win, and to John Cornyn for having run ...](116646308242618920/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116646308242618920
+  - Congratulations to Ken Paxton on such a tremendous win, and to John Cornyn for having run a strong and powerful race but, more importantly, having had a truly great career. John wi...
+- [02:33 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) A Crooked Politician!!!](116644198848350274/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116644198848350274
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) A Crooked Politician!!!
+- [02:33 UTC - Truth Social post 116644198491560015](116644198491560015/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116644198491560015
+  - _No text content captured._
+- [02:33 UTC - Truth Social post 116644197781113074](116644197781113074/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116644197781113074
+  - _No text content captured._
+- [02:31 UTC - A Crooked Politician!!!](116644191612081208/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116644191612081208
+  - A Crooked Politician!!!
+- [02:31 UTC - Joe Biden sues DOJ to stop release of audio recordings connected to special counsel probe:...](116644190724261689/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116644190724261689
+  - Joe Biden sues DOJ to stop release of audio recordings connected to special counsel probe: [https:// justthenews.com/government/cou rts-law/joe-biden-sues-doj-stop-release-audio-re...
+- [01:02 UTC - Truth Social post 116643839051547343](116643839051547343/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116643839051547343
+  - _No text content captured._
+- [00:50 UTC - Truth Social post 116643790910080948](116643790910080948/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116643790910080948
+  - _No text content captured._
+- [00:49 UTC - Truth Social post 116643790188255572](116643790188255572/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116643790188255572
+  - _No text content captured._

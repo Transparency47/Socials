@@ -1,7 +1,10 @@
 # TruthSocial / RealDonaldTrump / 2026-06-02
 
-- Posts: 20
+- Posts: 58
 
+- [12:32 UTC - Great job by highly decorated Navy Seal Officer, Mike Sarraille, on Jesse Watters. Mike ha...](116680527571740743/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116680527571740743
+  - Great job by highly decorated Navy Seal Officer, Mike Sarraille, on Jesse Watters. Mike has seen it all, and really gets it. A “tough cookie.” President DJT
 - [11:19 UTC - Today is Judge Jeanine Pirro’s Birthday. She is the U.S. Attorney for the District of Colu...](116680241453133224/)
   - Source: https://truthsocial.com/@realDonaldTrump/116680241453133224
   - Today is Judge Jeanine Pirro’s Birthday. She is the U.S. Attorney for the District of Columbia, and has done a fantastic job — Respected by everyone, even the Radical Left Lunatics...
@@ -62,3 +65,114 @@
 - [01:38 UTC - It is my Great Honor to endorse Kurt Alme, a fantastic Candidate running to be the next U....](116677955980694190/)
   - Source: https://truthsocial.com/@realDonaldTrump/116677955980694190
   - It is my Great Honor to endorse Kurt Alme, a fantastic Candidate running to be the next U.S. Senator from the Great State of Montana, a place I love and WON BIG in 2016, 2020, and...
+- [01:37 UTC - It is my Great Honor to endorse Chris McGowan, a fantastic Candidate running to be the nex...](116677952248244533/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677952248244533
+  - It is my Great Honor to endorse Chris McGowan, a fantastic Candidate running to be the next Congressman from Iowa’s 4th Congressional District! A Brave Iowa Air National Guard Vete...
+- [01:37 UTC - Congressman Zach Nunn is a fantastic Representative for the Great People of Iowa’s 3rd Con...](116677950796945440/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677950796945440
+  - Congressman Zach Nunn is a fantastic Representative for the Great People of Iowa’s 3rd Congressional District! A Brave Combat Veteran, Zach is fighting hard to Grow our Economy, Cu...
+- [01:37 UTC - It is my Great Honor to endorse MAGA Patriot, Joe Mitchell, who is running to represent th...](116677949779666562/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677949779666562
+  - It is my Great Honor to endorse MAGA Patriot, Joe Mitchell, who is running to represent the fantastic people of Iowa’s 2nd Congressional District. As a former Appointee in my Admin...
+- [01:36 UTC - Congresswoman Mariannette Miller-Meeks is an incredibly strong advocate for the Great Peop...](116677948503203356/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677948503203356
+  - Congresswoman Mariannette Miller-Meeks is an incredibly strong advocate for the Great People of Iowa’s 1st Congressional District! A distinguished Medical Doctor and U.S. Army Vete...
+- [01:35 UTC - Highly Respected American First Congressman, Randy Feenstra, is running for Governor of Io...](116677945307879259/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677945307879259
+  - Highly Respected American First Congressman, Randy Feenstra, is running for Governor of Iowa, a place I love and WON BIG in 2016, 2020, and 2024, getting the highest Vote in the Hi...
+- [01:35 UTC - It is my Great Honor to endorse Highly Respected San Diego County Supervisor, Jim Desmond,...](116677942521780690/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677942521780690
+  - It is my Great Honor to endorse Highly Respected San Diego County Supervisor, Jim Desmond, who is running to represent the tremendous people of California’s 48th Congressional Dist...
+- [01:34 UTC - Congressman Jay Obernolte is doing a terrific job representing the wonderful people of Cal...](116677941082070484/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677941082070484
+  - Congressman Jay Obernolte is doing a terrific job representing the wonderful people of California’s 23rd Congressional District! A Successful Entrepreneur, Civic Leader, and Highly...
+- [01:34 UTC - Congressman Vince Fong is a terrific Representative for the incredible people of Californi...](116677939522321731/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677939522321731
+  - Congressman Vince Fong is a terrific Representative for the incredible people of California’s 20th Congressional District! Vince has a strong Record of SUCCESS, and compelling supp...
+- [01:34 UTC - It is my Great Honor to endorse Kevin Lincoln, who is running to represent the incredible ...](116677938053405257/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677938053405257
+  - It is my Great Honor to endorse Kevin Lincoln, who is running to represent the incredible people of California’s 13th Congressional District. From bravely fighting for the U.S. Mar...
+- [01:33 UTC - Congressman Tom McClintock is doing a fantastic job representing California’s 5th Congress...](116677936448770234/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677936448770234
+  - Congressman Tom McClintock is doing a fantastic job representing California’s 5th Congressional District! As an Outspoken Member of the House Budget Committee, Tom knows the Americ...
+- [01:32 UTC - It is my Great Honor to endorse America First Patriot, James Gallagher, who is running to ...](116677931001186167/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677931001186167
+  - It is my Great Honor to endorse America First Patriot, James Gallagher, who is running to represent the wonderful people of California’s 1st Congressional District. A very successf...
+- [01:30 UTC - I have known and respected Steve Hilton, who is running for Governor of California, for ma...](116677925826821244/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677925826821244
+  - I have known and respected Steve Hilton, who is running for Governor of California, for many years. He is a truly fine man, one who has watched as this once great State has gone to...
+- [01:30 UTC - Congressman Brian Mast is a MAGA Warrior and Fantastic Advocate for Florida’s 21st Congres...](116677922835789083/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677922835789083
+  - Congressman Brian Mast is a MAGA Warrior and Fantastic Advocate for Florida’s 21st Congressional District! As the Chairman of my WINNING 2024 Campaign’s Veterans for Trump Coalitio...
+- [01:29 UTC - If Iran surrenders, admits their Navy is gone and resting at the bottom of the sea, and th...](116677921449196957/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677921449196957
+  - If Iran surrenders, admits their Navy is gone and resting at the bottom of the sea, and their Air Force is no longer with us, and if their entire Military walks out of Tehran, weap...
+- [01:29 UTC - Alvin Bragg created a new crime just for “Donald Trump.” He took misdemeanors that didn’t ...](116677920122432884/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677920122432884
+  - Alvin Bragg created a new crime just for “Donald Trump.” He took misdemeanors that didn’t exist, and turned them into felonies that never existed. They have a “charge” for Donald T...
+- [01:28 UTC - In the last two weeks I've taken out many bad Political "Leaders” and Pundits including Se...](116677916960939162/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677916960939162
+  - In the last two weeks I've taken out many bad Political "Leaders” and Pundits including Senator Bill Cassidy of Louisiana, Lightweight “Congressman” Thomas Massie of Kentucky, Brad...
+- [01:28 UTC - Meridian Park Fountain: [https://www. nps.gov/places/000/cascading-f ountain.htm](https://...](116677914933824247/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677914933824247
+  - Meridian Park Fountain: [https://www. nps.gov/places/000/cascading-f ountain.htm](https://www.nps.gov/places/000/cascading-fountain.htm)
+- [01:27 UTC - Truth Social post 116677912770941510](116677912770941510/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677912770941510
+  - _No text content captured._
+- [01:27 UTC - Truth Social post 116677911794139953](116677911794139953/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677911794139953
+  - _No text content captured._
+- [01:27 UTC - 51st State! [https://www. bloomberg.com/news/articles/20 26-05-29/canada-dips-into-technic...](116677910570104917/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677910570104917
+  - 51st State! [https://www. bloomberg.com/news/articles/20 26-05-29/canada-dips-into-technical-recession-for-first-time-since-2020](https://www.bloomberg.com/news/articles/2026-05-29...
+- [01:26 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116677906069551278](116677906971899009/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677906971899009
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116677906069551278
+- [01:25 UTC - Truth Social post 116677906069551278](116677906069551278/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677906069551278
+  - _No text content captured._
+- [01:25 UTC - Truth Social post 116677904886670595](116677904886670595/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677904886670595
+  - _No text content captured._
+- [01:24 UTC - Truth Social post 116677902323938306](116677902323938306/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677902323938306
+  - _No text content captured._
+- [01:24 UTC - EPA Advances Farmers’ Right to Repair Their Own Equipment, Saving Repair Costs and Product...](116677898475889259/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677898475889259
+  - EPA Advances Farmers’ Right to Repair Their Own Equipment, Saving Repair Costs and Productivity: [https://www. epa.gov/newsreleases/epa-advan ces-farmers-right-repair-their-own-equ...
+- [01:23 UTC - Truth Social post 116677896970983614](116677896970983614/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677896970983614
+  - _No text content captured._
+- [01:23 UTC - Truth Social post 116677896412028829](116677896412028829/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677896412028829
+  - _No text content captured._
+- [01:23 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116677894810247197](116677895624758583/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677895624758583
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116677894810247197
+- [01:23 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116677894020847693](116677894810247197/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677894810247197
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116677894020847693
+- [01:22 UTC - Truth Social post 116677894020847693](116677894020847693/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677894020847693
+  - _No text content captured._
+- [01:22 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116677891769590469](116677892634856979/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677892634856979
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116677891769590469
+- [01:22 UTC - Truth Social post 116677891769590469](116677891769590469/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677891769590469
+  - _No text content captured._
+- [01:19 UTC - Truth Social post 116677880043091406](116677880043091406/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677880043091406
+  - _No text content captured._
+- [01:18 UTC - RT [@ NewtGingrich](https://truthsocial.com/@NewtGingrich) After spending this week review...](116677876217981247/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677876217981247
+  - RT [@ NewtGingrich](https://truthsocial.com/@NewtGingrich) After spending this week reviewing the Iranian war I am now convinced President Trump is on the edge of an historic victo...
+- [01:17 UTC - [https://www. thefp.com/p/iran-war-end-trump -peace-deal-israel](https://www.thefp.com/p/i...](116677872982802868/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677872982802868
+  - [https://www. thefp.com/p/iran-war-end-trump -peace-deal-israel](https://www.thefp.com/p/iran-war-end-trump-peace-deal-israel)
+- [01:17 UTC - There Would Be No 4th of July Without Memorial Day: Trump's Powerful Arlington Message: [h...](116677871435291930/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677871435291930
+  - There Would Be No 4th of July Without Memorial Day: Trump's Powerful Arlington Message: [https:// redstate.com/bobhoge/2026/05/2 5/there-would-be-no-4th-of-july-without-memorial-da...
+- [01:16 UTC - Pete Hegseth’s anti-DEI speech at West Point is a template to save American lives: [https:...](116677869773531192/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116677869773531192
+  - Pete Hegseth’s anti-DEI speech at West Point is a template to save American lives: [https://www. foxnews.com/opinion/pete-hegse ths-anti-dei-speech-west-point-template-save-america...

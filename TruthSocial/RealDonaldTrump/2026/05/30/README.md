@@ -1,6 +1,6 @@
 # TruthSocial / RealDonaldTrump / 2026-05-30
 
-- Posts: 12
+- Posts: 69
 
 - [23:59 UTC - Watch my interview with my fantastic daughter-in-law, Lara Trump, tonight at 9:00 - FoxNew...](116666242491370108/)
   - Source: https://truthsocial.com/@realDonaldTrump/116666242491370108
@@ -38,3 +38,174 @@
 - [22:12 UTC - Truth Social post 116665820664629822](116665820664629822/)
   - Source: https://truthsocial.com/@realDonaldTrump/116665820664629822
   - _No text content captured._
+- [22:12 UTC - Truth Social post 116665818883066546](116665818883066546/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665818883066546
+  - _No text content captured._
+- [22:09 UTC - With King Charles at the White House! President DONALD J. TRUMP](116665810813312667/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665810813312667
+  - With King Charles at the White House! President DONALD J. TRUMP
+- [22:09 UTC - Truth Social post 116665809433094632](116665809433094632/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665809433094632
+  - _No text content captured._
+- [22:09 UTC - Truth Social post 116665808989182193](116665808989182193/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665808989182193
+  - _No text content captured._
+- [22:09 UTC - Truth Social post 116665808471538811](116665808471538811/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665808471538811
+  - _No text content captured._
+- [21:51 UTC - Truth Social post 116665739443187491](116665739443187491/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665739443187491
+  - _No text content captured._
+- [21:51 UTC - Truth Social post 116665736428394767](116665736428394767/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665736428394767
+  - _No text content captured._
+- [21:50 UTC - Truth Social post 116665735685754803](116665735685754803/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665735685754803
+  - _No text content captured._
+- [21:50 UTC - Truth Social post 116665734361826694](116665734361826694/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665734361826694
+  - _No text content captured._
+- [21:39 UTC - Truth Social post 116665692602534272](116665692602534272/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665692602534272
+  - _No text content captured._
+- [21:39 UTC - Truth Social post 116665690385585039](116665690385585039/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665690385585039
+  - _No text content captured._
+- [21:38 UTC - Truth Social post 116665687705800321](116665687705800321/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665687705800321
+  - _No text content captured._
+- [21:37 UTC - Truth Social post 116665684409292375](116665684409292375/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665684409292375
+  - _No text content captured._
+- [21:37 UTC - Truth Social post 116665683584351320](116665683584351320/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665683584351320
+  - _No text content captured._
+- [21:37 UTC - Truth Social post 116665682753024406](116665682753024406/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665682753024406
+  - _No text content captured._
+- [21:37 UTC - Truth Social post 116665681864902555](116665681864902555/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665681864902555
+  - _No text content captured._
+- [21:36 UTC - Truth Social post 116665681079242023](116665681079242023/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665681079242023
+  - _No text content captured._
+- [21:36 UTC - Truth Social post 116665677662591058](116665677662591058/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665677662591058
+  - _No text content captured._
+- [21:35 UTC - Truth Social post 116665674551482689](116665674551482689/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665674551482689
+  - _No text content captured._
+- [21:34 UTC - Truth Social post 116665672570773132](116665672570773132/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665672570773132
+  - _No text content captured._
+- [21:34 UTC - Truth Social post 116665671600647895](116665671600647895/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665671600647895
+  - _No text content captured._
+- [21:34 UTC - Truth Social post 116665670037101828](116665670037101828/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665670037101828
+  - _No text content captured._
+- [21:33 UTC - Truth Social post 116665669090930187](116665669090930187/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665669090930187
+  - _No text content captured._
+- [21:33 UTC - Truth Social post 116665667978930577](116665667978930577/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665667978930577
+  - _No text content captured._
+- [20:57 UTC - The DronePort on the roof of the White House Ballroom! President DONALD J. TRUMP](116665527815377503/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665527815377503
+  - The DronePort on the roof of the White House Ballroom! President DONALD J. TRUMP
+- [20:54 UTC - Truth Social post 116665515357216557](116665515357216557/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665515357216557
+  - _No text content captured._
+- [20:33 UTC - Someone should explain to the Pope that the Mayor of Chicago is useless, and that Iran can...](116665431926784379/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665431926784379
+  - Someone should explain to the Pope that the Mayor of Chicago is useless, and that Iran cannot have a Nuclear Weapon! President DONALD J. TRUMP
+- [19:17 UTC - Watch Lara Trump tonight on FoxNews at 9 P.M. EST. She interviews me for the entire Show! ...](116665133051752156/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665133051752156
+  - Watch Lara Trump tonight on FoxNews at 9 P.M. EST. She interviews me for the entire Show! President DJT
+- [18:54 UTC - Truth Social post 116665041851243125](116665041851243125/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116665041851243125
+  - _No text content captured._
+- [17:55 UTC - Truth Social post 116664810828313809](116664810828313809/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116664810828313809
+  - _No text content captured._
+- [17:16 UTC - Truth Social post 116664658424115630](116664658424115630/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116664658424115630
+  - _No text content captured._
+- [17:16 UTC - Truth Social post 116664657914643151](116664657914643151/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116664657914643151
+  - _No text content captured._
+- [17:16 UTC - Truth Social post 116664657331187924](116664657331187924/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116664657331187924
+  - _No text content captured._
+- [17:03 UTC - Truth Social post 116664605114382787](116664605114382787/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116664605114382787
+  - _No text content captured._
+- [16:56 UTC - Tom Brady is a great player, and great guy!President DJT](116664576257157897/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116664576257157897
+  - Tom Brady is a great player, and great guy!President DJT
+- [16:45 UTC - PRESIDENT DONALD J. TRUMP vs. Kathy Hochul, New York’s failed Governor who, if people are ...](116664536700150219/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116664536700150219
+  - PRESIDENT DONALD J. TRUMP vs. Kathy Hochul, New York’s failed Governor who, if people are smart, will vote for Bruce Blakeman — He will, MAKE NEW YORK GREAT AGAIN! President DJT
+- [16:15 UTC - Thank you Jaxson! It was great being with you. I know you’re taking some heat from the Rad...](116664418957601249/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116664418957601249
+  - Thank you Jaxson! It was great being with you. I know you’re taking some heat from the Radical Left Lunatics who are jealous of you, me, and everyone who surrounds us but, I also k...
+- [16:13 UTC - Truth Social post 116664409242115443](116664409242115443/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116664409242115443
+  - _No text content captured._
+- [16:13 UTC - Truth Social post 116664407473547709](116664407473547709/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116664407473547709
+  - _No text content captured._
+- [16:12 UTC - Truth Social post 116664404693162189](116664404693162189/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116664404693162189
+  - _No text content captured._
+- [16:12 UTC - The Reflecting Pool, built between The Lincoln Memorial and The Washington Monument, which...](116664404638689204/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116664404638689204
+  - The Reflecting Pool, built between The Lincoln Memorial and The Washington Monument, which was destroyed by Barack Hussein Obama and Sleepy Joe Biden after spending Hundreds of Mil...
+- [16:11 UTC - Truth Social post 116664401396544221](116664401396544221/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116664401396544221
+  - _No text content captured._
+- [16:11 UTC - Truth Social post 116664400893849990](116664400893849990/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116664400893849990
+  - _No text content captured._
+- [16:11 UTC - Truth Social post 116664400255959135](116664400255959135/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116664400255959135
+  - _No text content captured._
+- [16:11 UTC - Truth Social post 116664399428957262](116664399428957262/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116664399428957262
+  - _No text content captured._
+- [16:10 UTC - Truth Social post 116664396713705542](116664396713705542/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116664396713705542
+  - _No text content captured._
+- [16:09 UTC - Truth Social post 116664394293246489](116664394293246489/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116664394293246489
+  - _No text content captured._
+- [16:09 UTC - Truth Social post 116664393553709550](116664393553709550/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116664393553709550
+  - _No text content captured._
+- [16:09 UTC - Truth Social post 116664392227372669](116664392227372669/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116664392227372669
+  - _No text content captured._
+- [16:03 UTC - I understand Artists are getting “the yips” having to do with their performance on Wednesd...](116664367963376218/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116664367963376218
+  - I understand Artists are getting “the yips” having to do with their performance on Wednesday, so I am thinking about bringing the Number One Attraction anywhere in the World, the m...
+- [15:15 UTC - Can you imagine? A Barack Hussein Obama Judge named Christopher Cooper has stopped a magni...](116664181157116570/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116664181157116570
+  - Can you imagine? A Barack Hussein Obama Judge named Christopher Cooper has stopped a magnificent structural and aesthetic rebuilding of The Trump Kennedy Center where Millions of D...
+- [04:46 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116661706730496718](116661707551593139/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116661707551593139
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116661706730496718
+- [04:46 UTC - Truth Social post 116661706730496718](116661706730496718/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116661706730496718
+  - _No text content captured._
+- [03:41 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116661451693288924](116661452379709751/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116661452379709751
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116661451693288924
+- [03:41 UTC - Truth Social post 116661451693288924](116661451693288924/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116661451693288924
+  - _No text content captured._
+- [03:39 UTC - Dhillon wants judge who allegedly attended a Fani Willis event off Georgia election integr...](116661444515288014/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116661444515288014
+  - Dhillon wants judge who allegedly attended a Fani Willis event off Georgia election integrity case: [https:// justthenews.com/government/cou rts-law/dhillon-moves-recuse-atlanta-ju...
+- [00:29 UTC - The Failing New York Times is doing everything possible to criticize the magnificent resto...](116660696782546784/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116660696782546784
+  - The Failing New York Times is doing everything possible to criticize the magnificent restoration of the Reflecting Pool, located between two of America’s most important Landmarks,...

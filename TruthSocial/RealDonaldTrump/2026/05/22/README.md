@@ -1,0 +1,58 @@
+# TruthSocial / RealDonaldTrump / 2026-05-22
+
+- Posts: 18
+
+- [23:25 UTC - Truth Social post 116620810357086038](116620810357086038/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116620810357086038
+  - _No text content captured._
+- [22:35 UTC - The LEGENDARY NASCAR Driver Kyle Busch tragically and unexpectedly passed away yesterday. ...](116620613069778717/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116620613069778717
+  - The LEGENDARY NASCAR Driver Kyle Busch tragically and unexpectedly passed away yesterday. He was a true talent who loved NASCAR and its fans. Kyle was a WINNER! He was a two time C...
+- [22:20 UTC - Truth Social post 116620553611959468](116620553611959468/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116620553611959468
+  - _No text content captured._
+- [22:15 UTC - Truth Social post 116620534139904929](116620534139904929/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116620534139904929
+  - _No text content captured._
+- [22:13 UTC - Truth Social post 116620525956578737](116620525956578737/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116620525956578737
+  - _No text content captured._
+- [22:13 UTC - Truth Social post 116620525492424497](116620525492424497/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116620525492424497
+  - _No text content captured._
+- [21:57 UTC - Truth Social post 116620463232274800](116620463232274800/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116620463232274800
+  - _No text content captured._
+- [17:36 UTC - Unfortunately, after having done a great job, Tulsi Gabbard will be leaving the Administra...](116619437706453945/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116619437706453945
+  - Unfortunately, after having done a great job, Tulsi Gabbard will be leaving the Administration on June 30th. Her wonderful husband, Abraham, has been recently diagnosed with a rare...
+- [17:11 UTC - While I very much wanted to be with my son, Don Jr., and the newest member of the Trump Fa...](116619340468924220/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116619340468924220
+  - While I very much wanted to be with my son, Don Jr., and the newest member of the Trump Family, his soon to be wife, Bettina, circumstances pertaining to Government, and my love fo...
+- [13:49 UTC - I gave up a lot of money in allowing the just announced Anti-Weaponization Fund to go forw...](116618545735076530/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116618545735076530
+  - I gave up a lot of money in allowing the just announced Anti-Weaponization Fund to go forward. I could have settled my case, including the illegal release of my Tax Returns and the...
+- [13:37 UTC - Stephen Colbert’s firing from CBS was the “Beginning of the End” for untalented, nasty, hi...](116618496946919115/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116618496946919115
+  - Stephen Colbert’s firing from CBS was the “Beginning of the End” for untalented, nasty, highly overpaid, not funny, and very poorly rated Late Night Television Hosts. Others, of ev...
+- [13:16 UTC - Stop playing games and PASS THE SAVE AMERICA ACT!](116618415603465868/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116618415603465868
+  - Stop playing games and PASS THE SAVE AMERICA ACT!
+- [13:15 UTC - People don’t remember that Thom Tillis, the weak and ineffective Senator from the Great St...](116618410517308849/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116618410517308849
+  - People don’t remember that Thom Tillis, the weak and ineffective Senator from the Great State of North Carolina, a State I won, including primaries, 6 consecutive times, didn’t hav...
+- [12:50 UTC - Glenn Jacobs has a BIG political future in Tennessee - A great guy!!! President DJT](116618310463377683/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116618310463377683
+  - Glenn Jacobs has a BIG political future in Tennessee - A great guy!!! President DJT
+- [11:26 UTC - NEW STOCK MARKET RECORD!](116617983460296482/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116617983460296482
+  - NEW STOCK MARKET RECORD!
+- [05:52 UTC - Colbert is finally finished at CBS. Amazing that he lasted so long! No talent, no ratings,...](116616669222083429/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116616669222083429
+  - Colbert is finally finished at CBS. Amazing that he lasted so long! No talent, no ratings, no life. He was like a dead person. You could take any person off of the street and they...
+- [05:29 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) If Iran surrenders, admit...](116616577018871879/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116616577018871879
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) If Iran surrenders, admits their Navy is gone and resting at the bottom of the sea, and their Air Force is no longe...
+- [02:00 UTC - Have it!!! Great. President DJT](116615755510809391/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116615755510809391
+  - Have it!!! Great. President DJT
