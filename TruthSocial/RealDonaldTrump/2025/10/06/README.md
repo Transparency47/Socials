@@ -1,0 +1,58 @@
+# TruthSocial / RealDonaldTrump / 2025-10-06
+
+- Posts: 18
+
+- [22:52 UTC - Democrats have SHUT DOWN the United States Government right in the midst of one of the mos...](115329671584864920/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115329671584864920
+  - Democrats have SHUT DOWN the United States Government right in the midst of one of the most successful Economies, including a Record Stock Market, that our Country has ever had. Th...
+- [19:04 UTC - Truth Social post 115328776658949993](115328776658949993/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115328776658949993
+  - _No text content captured._
+- [19:04 UTC - Truth Social post 115328775907282328](115328775907282328/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115328775907282328
+  - _No text content captured._
+- [19:04 UTC - Truth Social post 115328775252629938](115328775252629938/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115328775252629938
+  - _No text content captured._
+- [19:04 UTC - Truth Social post 115328774369977637](115328774369977637/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115328774369977637
+  - _No text content captured._
+- [17:48 UTC - [https://www. breitbart.com/politics/2025/10 /01/exclusive-team-trump-scored-nearly-1-bill...](115328477040351360/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115328477040351360
+  - [https://www. breitbart.com/politics/2025/10 /01/exclusive-team-trump-scored-nearly-1-billion-views-september-crushing-official-democrat-accounts/](https://www.breitbart.com/politi...
+- [17:48 UTC - [https:// dailycaller.com/2025/09/26/sco op-internal-docs-tylenol-maker-janssen-autism-ris...](115328476199712157/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115328476199712157
+  - [https:// dailycaller.com/2025/09/26/sco op-internal-docs-tylenol-maker-janssen-autism-risk/](https://dailycaller.com/2025/09/26/scoop-internal-docs-tylenol-maker-janssen-autism-ri...
+- [17:47 UTC - [https://www. washingtonpost.com/world/2025/ 09/26/trump-ukraine-stubb-finland/](https://w...](115328475388548676/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115328475388548676
+  - [https://www. washingtonpost.com/world/2025/ 09/26/trump-ukraine-stubb-finland/](https://www.washingtonpost.com/world/2025/09/26/trump-ukraine-stubb-finland/)
+- [17:47 UTC - [https://www. breitbart.com/politics/2025/09 /25/exclusive-qatari-prime-minister-donald-tr...](115328471708333338/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115328471708333338
+  - [https://www. breitbart.com/politics/2025/09 /25/exclusive-qatari-prime-minister-donald-trump-is-the-only-one-in-world-who-can-achieve-peace-in-gaza/](https://www.breitbart.com/pol...
+- [17:46 UTC - [https:// iowaclimate.org/2025/02/06/the -shocking-solar-farm-bird-deaths-the-mainstream-m...](115328470832089424/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115328470832089424
+  - [https:// iowaclimate.org/2025/02/06/the -shocking-solar-farm-bird-deaths-the-mainstream-media-arent-telling-you-about/](https://iowaclimate.org/2025/02/06/the-shocking-solar-farm-...
+- [17:44 UTC - Beginning November 1st, 2025, all Medium and Heavy Duty Trucks coming into the United Stat...](115328463321928109/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115328463321928109
+  - Beginning November 1st, 2025, all Medium and Heavy Duty Trucks coming into the United States from other Countries will be Tariffed at the Rate of 25%. Thank you for your attention...
+- [16:36 UTC - This morning, I had a very good telephone call with President Lula, of Brazil. We discusse...](115328193599837767/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115328193599837767
+  - This morning, I had a very good telephone call with President Lula, of Brazil. We discussed many things, but it was mostly focused on the Economy, and Trade, between our two Countr...
+- [15:53 UTC - GOD BLESS THE UNITED STATES NAVY!](115328023446331082/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115328023446331082
+  - GOD BLESS THE UNITED STATES NAVY!
+- [15:01 UTC - Truth Social post 115327820187943727](115327820187943727/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115327820187943727
+  - _No text content captured._
+- [14:04 UTC - Truth Social post 115327594660216069](115327594660216069/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115327594660216069
+  - _No text content captured._
+- [13:54 UTC - Japan has just elected its first female Prime Minister, a highly respected person of great...](115327555965429625/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115327555965429625
+  - Japan has just elected its first female Prime Minister, a highly respected person of great wisdom and strength. This is tremendous news for the incredible people of Japan. Congratu...
+- [11:57 UTC - MAKE AMERICA GREAT AGAIN!!!](115327095381864389/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115327095381864389
+  - MAKE AMERICA GREAT AGAIN!!!
+- [11:56 UTC - JUST OUT: Good news for the Holiday Season. EARLY PRICES ARE DOWN, WHILE TARIFFS ARE MAKIN...](115327091437197645/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115327091437197645
+  - JUST OUT: Good news for the Holiday Season. EARLY PRICES ARE DOWN, WHILE TARIFFS ARE MAKING OUR COUNTRY AN ECONOMIC POWER AGAIN. Also, virtually NO INFLATION, AS STOCK MARKETS CONT...

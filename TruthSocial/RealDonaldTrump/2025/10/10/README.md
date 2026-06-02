@@ -1,0 +1,76 @@
+# TruthSocial / RealDonaldTrump / 2025-10-10
+
+- Posts: 24
+
+- [20:50 UTC - It has just been learned that China has taken an extraordinarily aggressive position on Tr...](115351840469973590/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115351840469973590
+  - It has just been learned that China has taken an extraordinarily aggressive position on Trade in sending an extremely hostile letter to the World, stating that they were going to,...
+- [15:26 UTC - Truth Social post 115350568624624237](115350568624624237/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115350568624624237
+  - _No text content captured._
+- [15:26 UTC - Truth Social post 115350566452674300](115350566452674300/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115350566452674300
+  - _No text content captured._
+- [15:24 UTC - Truth Social post 115350561213117091](115350561213117091/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115350561213117091
+  - _No text content captured._
+- [15:24 UTC - Truth Social post 115350560831270953](115350560831270953/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115350560831270953
+  - _No text content captured._
+- [15:15 UTC - Thank you to President Putin!](115350523979849543/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115350523979849543
+  - Thank you to President Putin!
+- [15:15 UTC - Truth Social post 115350523795713137](115350523795713137/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115350523795713137
+  - _No text content captured._
+- [14:57 UTC - Some very strange things are happening in China! They are becoming very hostile, and sendi...](115350455734003647/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115350455734003647
+  - Some very strange things are happening in China! They are becoming very hostile, and sending letters to Countries throughout the World, that they want to impose Export Controls on...
+- [11:09 UTC - Truth Social post 115349556428347942](115349556428347942/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115349556428347942
+  - _No text content captured._
+- [11:08 UTC - Truth Social post 115349554864631907](115349554864631907/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115349554864631907
+  - _No text content captured._
+- [11:08 UTC - Truth Social post 115349553808569264](115349553808569264/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115349553808569264
+  - _No text content captured._
+- [11:08 UTC - Truth Social post 115349552892775178](115349552892775178/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115349552892775178
+  - _No text content captured._
+- [11:08 UTC - [https:// youtu.be/WHa4YPYHAPY](https://youtu.be/WHa4YPYHAPY)](115349551972136550/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115349551972136550
+  - [https:// youtu.be/WHa4YPYHAPY](https://youtu.be/WHa4YPYHAPY)
+- [11:05 UTC - Truth Social post 115349540200158920](115349540200158920/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115349540200158920
+  - _No text content captured._
+- [11:04 UTC - Truth Social post 115349539348129903](115349539348129903/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115349539348129903
+  - _No text content captured._
+- [11:04 UTC - Truth Social post 115349538547018753](115349538547018753/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115349538547018753
+  - _No text content captured._
+- [11:04 UTC - Truth Social post 115349537129809166](115349537129809166/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115349537129809166
+  - _No text content captured._
+- [03:50 UTC - Truth Social post 115347829999771028](115347829999771028/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115347829999771028
+  - _No text content captured._
+- [03:28 UTC - [https:// web.breitbart.com/videos/peace -through-strength-trump-s-gaza-deal-why-he-deserv...](115347744039385712/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115347744039385712
+  - [https:// web.breitbart.com/videos/peace -through-strength-trump-s-gaza-deal-why-he-deserves-the-nobel-with-matt-boyle-and-joel-pollak](https://web.breitbart.com/videos/peace-throu...
+- [03:25 UTC - Christopher Wray is another “beauty.” [https:// justthenews.com/government/fed eral-agenci...](115347732161219225/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115347732161219225
+  - Christopher Wray is another “beauty.” [https:// justthenews.com/government/fed eral-agencies/trump-thanks-fbi-agents-who-blew-whistle-bias-witnessed-under-wrays](https://justthenew...
+- [03:24 UTC - [https://www. foxnews.com/politics/angel-par ents-call-trump-receive-nobel-peace-prize-bor...](115347728552002976/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115347728552002976
+  - [https://www. foxnews.com/politics/angel-par ents-call-trump-receive-nobel-peace-prize-border-security-efforts](https://www.foxnews.com/politics/angel-parents-call-trump-receive-no...
+- [02:15 UTC - Thank you Washington Post. Wow!!! [https://www. washingtonpost.com/opinions/20 25/10/09/ga...](115347456920917051/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115347456920917051
+  - Thank you Washington Post. Wow!!! [https://www. washingtonpost.com/opinions/20 25/10/09/gaza-ceasefire-deal-trump-nobel-prize/](https://www.washingtonpost.com/opinions/2025/10/09/g...
+- [01:58 UTC - Truth Social post 115347389638561427](115347389638561427/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115347389638561427
+  - _No text content captured._
+- [01:32 UTC - Thank you!!! [https://www. newsmax.com/politics/rjc-nobel -peace-prize-trump/2025/10/09/id...](115347290009466197/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115347290009466197
+  - Thank you!!! [https://www. newsmax.com/politics/rjc-nobel -peace-prize-trump/2025/10/09/id/1229677/](https://www.newsmax.com/politics/rjc-nobel-peace-prize-trump/2025/10/09/id/1229...

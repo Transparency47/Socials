@@ -1,0 +1,70 @@
+# TruthSocial / RealDonaldTrump / 2025-10-14
+
+- Posts: 22
+
+- [23:28 UTC - Congressman John Moolenaar is an incredible Representative for the fantastic people of Mic...](115375111830070922/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115375111830070922
+  - Congressman John Moolenaar is an incredible Representative for the fantastic people of Michigan’s 2nd Congressional District! As the Chairman of the Select Committee on the CCP, Jo...
+- [23:28 UTC - Congressman Tom Cole is a Tremendous Champion for Oklahoma’s 4th Congressional District! A...](115375110884191581/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115375110884191581
+  - Congressman Tom Cole is a Tremendous Champion for Oklahoma’s 4th Congressional District! As the Chairman of the POWERFUL House Appropriations Committee, Tom knows the America First...
+- [23:27 UTC - Congressman Russell Fry is an America First Patriot, who is doing an incredible job repres...](115375110148150196/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115375110148150196
+  - Congressman Russell Fry is an America First Patriot, who is doing an incredible job representing South Carolina’s 7th Congressional District! A MAGA Warrior, who has been with us f...
+- [23:27 UTC - Congressman William Timmons is doing a truly fantastic job representing the wonderful peop...](115375109495548501/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115375109495548501
+  - Congressman William Timmons is doing a truly fantastic job representing the wonderful people of South Carolina’s 4th Congressional District! A Captain in the South Carolina Air Nat...
+- [23:27 UTC - Congressman Vince Fong is a terrific Representative for the incredible people of Californi...](115375108797044323/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115375108797044323
+  - Congressman Vince Fong is a terrific Representative for the incredible people of California’s 20th Congressional District! Vince has a strong Record of SUCCESS, and compelling supp...
+- [23:27 UTC - Congressman Tim Moore is a Tremendous Champion for North Carolina’s 14th Congressional Dis...](115375108572896191/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115375108572896191
+  - Congressman Tim Moore is a Tremendous Champion for North Carolina’s 14th Congressional District! Tim served as the Highly Respected Speaker of the North Carolina House of Represent...
+- [23:27 UTC - Congresswoman Laurel Lee is an incredible Representative of Florida’s 15th Congressional D...](115375107555771159/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115375107555771159
+  - Congresswoman Laurel Lee is an incredible Representative of Florida’s 15th Congressional District! Laurel served as Florida’s Secretary of State for three years, and delivered stro...
+- [23:27 UTC - Congresswoman Kat Cammack is doing a fantastic job representing the wonderful people of Fl...](115375107170577916/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115375107170577916
+  - Congresswoman Kat Cammack is doing a fantastic job representing the wonderful people of Florida’s 3rd Congressional District! In Congress, Kat is working tirelessly to Grow our Eco...
+- [23:26 UTC - Congressman Neal Dunn is a tremendous Representative for the Great People of Florida’s 2nd...](115375106561964982/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115375106561964982
+  - Congressman Neal Dunn is a tremendous Representative for the Great People of Florida’s 2nd Congressional District! An accomplished surgeon, and retired Major in the U.S. Army, Neal...
+- [23:26 UTC - Congressman Bob Onder is a MAGA Warrior who is doing a fantastic job representing Missouri...](115375105881550079/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115375105881550079
+  - Congressman Bob Onder is a MAGA Warrior who is doing a fantastic job representing Missouri’s 3rd Congressional District! A Proven Leader, Bob has served his Community as a Physicia...
+- [22:52 UTC - Great meeting today with Javier Milei! He is doing the right things for his Country. I hop...](115374972311663773/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115374972311663773
+  - Great meeting today with Javier Milei! He is doing the right things for his Country. I hope the people of Argentina understand how good a job he is doing, and will support his work...
+- [20:36 UTC - [https://www. youtube.com/live/kMzSea9TrMY?s i=xaaEBNxVHDuEE723](https://www.youtube.com/l...](115374436076679454/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115374436076679454
+  - [https://www. youtube.com/live/kMzSea9TrMY?s i=xaaEBNxVHDuEE723](https://www.youtube.com/live/kMzSea9TrMY?si=xaaEBNxVHDuEE723)
+- [19:37 UTC - I believe that China purposefully not buying our Soybeans, and causing difficulty for our ...](115374202790006886/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115374202790006886
+  - I believe that China purposefully not buying our Soybeans, and causing difficulty for our Soybean Farmers, is an Economically Hostile Act. We are considering terminating business w...
+- [17:42 UTC - Under my Standing Authorities as Commander-in-Chief, this morning, the Secretary of War, o...](115373751811822463/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115373751811822463
+  - Under my Standing Authorities as Commander-in-Chief, this morning, the Secretary of War, ordered a lethal kinetic strike on a vessel affiliated with a Designated Terrorist Organiza...
+- [17:16 UTC - Don’t forget to get a copy of my son Eric’s book, “UNDER SIEGE,” which is breaking records...](115373650611754631/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115373650611754631
+  - Don’t forget to get a copy of my son Eric’s book, “UNDER SIEGE,” which is breaking records everywhere. It’s a phenomenal book, that’s a must read for everyone—Congratulations Eric,...
+- [16:55 UTC - ALL TWENTY HOSTAGES ARE BACK AND FEELING AS GOOD AS CAN BE EXPECTED. A big burden has been...](115373569028997850/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115373569028997850
+  - ALL TWENTY HOSTAGES ARE BACK AND FEELING AS GOOD AS CAN BE EXPECTED. A big burden has been lifted, but the job IS NOT DONE. THE DEAD HAVE NOT BEEN RETURNED, AS PROMISED! Phase Two...
+- [16:43 UTC - Just got back from the Middle East. What a point in time it was!!! The crowd for Charlie K...](115373521310796812/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115373521310796812
+  - Just got back from the Middle East. What a point in time it was!!! The crowd for Charlie K’s Presidential Medal of Freedom presentation is so big and enthusiastic that I moved it o...
+- [05:36 UTC - Time Magazine wrote a relatively good story about me, but the picture may be the Worst of ...](115370899456605514/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115370899456605514
+  - Time Magazine wrote a relatively good story about me, but the picture may be the Worst of All Time. They “disappeared” my hair, and then had something floating on top of my head th...
+- [05:35 UTC - Heading back home to a very safe and beautiful Washington, D.C. Accomplished so much today...](115370891823342027/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115370891823342027
+  - Heading back home to a very safe and beautiful Washington, D.C. Accomplished so much today in Israel and Egypt. A lot of work, but I wouldn’t have it any other way. It was an exper...
+- [05:00 UTC - Jensen Huang: "President Trump did the Miracle. We are so proud and grateful."](115370756035314921/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115370756035314921
+  - Jensen Huang: "President Trump did the Miracle. We are so proud and grateful."
+- [04:58 UTC - Giorgia Meloni, the GREAT Prime Minister of Italy, has written a new Book, “I Am Giorgia: ...](115370746210555899/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115370746210555899
+  - Giorgia Meloni, the GREAT Prime Minister of Italy, has written a new Book, “I Am Giorgia: My Roots, My Principles.” Giorgia is doing an incredible job for the wonderful people of I...
+- [02:41 UTC - Truth Social post 115370209988550682](115370209988550682/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115370209988550682
+  - _No text content captured._

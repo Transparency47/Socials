@@ -1,0 +1,67 @@
+# TruthSocial / RealDonaldTrump / 2025-10-19
+
+- Posts: 21
+
+- [21:47 UTC - Truth Social post 115403027634473916](115403027634473916/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115403027634473916
+  - _No text content captured._
+- [19:14 UTC - Truth Social post 115402426372694572](115402426372694572/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115402426372694572
+  - _No text content captured._
+- [18:56 UTC - I’m pleased to announce Mark Savaya will serve as Special Envoy to the Republic of Iraq. M...](115402354000676703/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115402354000676703
+  - I’m pleased to announce Mark Savaya will serve as Special Envoy to the Republic of Iraq. Mark’s deep understanding of the Iraq-U.S. relationship, and his connections in the region,...
+- [14:01 UTC - Everybody: I am interviewed by the great Maria Bartiromo, RIGHT NOW, on FoxNews. Enjoy](115401193724514444/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115401193724514444
+  - Everybody: I am interviewed by the great Maria Bartiromo, RIGHT NOW, on FoxNews. Enjoy
+- [13:58 UTC - President Gustavo Petro, of Colombia, is an illegal drug leader strongly encouraging the m...](115401182824973489/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115401182824973489
+  - President Gustavo Petro, of Colombia, is an illegal drug leader strongly encouraging the massive production of drugs, in big and small fields, all over Colombia. It has become the...
+- [04:09 UTC - Truth Social post 115398866231103721](115398866231103721/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115398866231103721
+  - _No text content captured._
+- [04:06 UTC - Truth Social post 115398853482731705](115398853482731705/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115398853482731705
+  - _No text content captured._
+- [04:01 UTC - [https://www. foxnews.com/video/638305150511 2](https://www.foxnews.com/video/638305150511...](115398836828472381/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115398836828472381
+  - [https://www. foxnews.com/video/638305150511 2](https://www.foxnews.com/video/6383051505112)
+- [02:34 UTC - [https:// a.co/d/2NV51VW](https://a.co/d/2NV51VW)](115398493946618969/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115398493946618969
+  - [https:// a.co/d/2NV51VW](https://a.co/d/2NV51VW)
+- [02:04 UTC - Truth Social post 115398374297276652](115398374297276652/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115398374297276652
+  - _No text content captured._
+- [02:03 UTC - Truth Social post 115398372961004262](115398372961004262/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115398372961004262
+  - _No text content captured._
+- [02:03 UTC - Truth Social post 115398371853765354](115398371853765354/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115398371853765354
+  - _No text content captured._
+- [01:38 UTC - Truth Social post 115398274877297343](115398274877297343/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115398274877297343
+  - _No text content captured._
+- [01:38 UTC - Truth Social post 115398272392808492](115398272392808492/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115398272392808492
+  - _No text content captured._
+- [01:38 UTC - Truth Social post 115398271512135179](115398271512135179/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115398271512135179
+  - _No text content captured._
+- [01:34 UTC - Truth Social post 115398257963308786](115398257963308786/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115398257963308786
+  - _No text content captured._
+- [01:33 UTC - Truth Social post 115398255165038351](115398255165038351/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115398255165038351
+  - _No text content captured._
+- [01:33 UTC - Truth Social post 115398255010940539](115398255010940539/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115398255010940539
+  - _No text content captured._
+- [01:32 UTC - Truth Social post 115398251623299921](115398251623299921/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115398251623299921
+  - _No text content captured._
+- [01:32 UTC - Truth Social post 115398249203161975](115398249203161975/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115398249203161975
+  - _No text content captured._
+- [01:32 UTC - [https:// x.com/lynnebp_294/status/19791 80825087275505?s=46](https://x.com/lynnebp_294/st...](115398248201263688/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115398248201263688
+  - [https:// x.com/lynnebp_294/status/19791 80825087275505?s=46](https://x.com/lynnebp_294/status/1979180825087275505?s=46)

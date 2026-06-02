@@ -1,0 +1,49 @@
+# TruthSocial / RealDonaldTrump / 2025-10-22
+
+- Posts: 15
+
+- [23:35 UTC - I am rescuing the American Spirit by making America the “HOTTEST” Country in the World. To...](115420439983527137/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115420439983527137
+  - I am rescuing the American Spirit by making America the “HOTTEST” Country in the World. Today Bret Baier has a GREAT Book out about another strong President, Teddy Roosevelt. Go ou...
+- [23:34 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114661266771433205 I just spent...](115420436157664232/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115420436157664232
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/114661266771433205 I just spent some time in the Oval Office with Brad Little, the GREAT Governor of Idaho. He is doing a...
+- [23:28 UTC - Congratulations to Eric Trump — Such a Great Honor to be Number One!](115420411260976917/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115420411260976917
+  - Congratulations to Eric Trump — Such a Great Honor to be Number One!
+- [20:57 UTC - “Treasury Sanctions Major Russian Oil Companies, Calls on Moscow to Immediately Agree to C...](115419815673188246/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115419815673188246
+  - “Treasury Sanctions Major Russian Oil Companies, Calls on Moscow to Immediately Agree to Ceasefire”
+- [20:24 UTC - The Wall Street Journal story on the U.S.A.’s approval of Ukraine being allowed to use lon...](115419686256202789/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115419686256202789
+  - The Wall Street Journal story on the U.S.A.’s approval of Ukraine being allowed to use long range missiles deep into Russia is FAKE NEWS! The U.S. has nothing to do with those miss...
+- [20:03 UTC - Truth Social post 115419606321247877](115419606321247877/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115419606321247877
+  - _No text content captured._
+- [19:59 UTC - Wilton Simpson is the strong and highly popular Agriculture Commissioner for Florida, my “...](115419589580674458/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115419589580674458
+  - Wilton Simpson is the strong and highly popular Agriculture Commissioner for Florida, my “Home” State, which I love and won SIX times, including with 6.1 Million Votes in 2024, the...
+- [19:58 UTC - I just informed Governor Mike Dunleavy that, based on his request, I am approving $25 Mill...](115419584805414647/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115419584805414647
+  - I just informed Governor Mike Dunleavy that, based on his request, I am approving $25 Million Dollars to help Alaska recover from the major typhoon they experienced earlier this mo...
+- [19:58 UTC - I just granted $260,000 to the Leech Lake Band of Ojibwe for public assistance. These incr...](115419583758354199/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115419583758354199
+  - I just granted $260,000 to the Leech Lake Band of Ojibwe for public assistance. These incredible people are tough, smart, and will build their community stronger than ever before!
+- [19:57 UTC - I just finished speaking with Governor Jim Pillen, of the Great State of Nebraska, and tol...](115419580763584285/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115419580763584285
+  - I just finished speaking with Governor Jim Pillen, of the Great State of Nebraska, and told him that I have approved $15 Million Dollars for the recovery efforts from the major sto...
+- [19:56 UTC - I just spoke with Governor Mike Kehoe, of the Great State of Missouri, and told him that I...](115419577297297862/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115419577297297862
+  - I just spoke with Governor Mike Kehoe, of the Great State of Missouri, and told him that I am approving $2.5 Million Dollars in individual assistance after severe storms, high wind...
+- [19:39 UTC - For all of those people voting in New Jersey and Virginia for Governor, Attorney General, ...](115419510654451460/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115419510654451460
+  - For all of those people voting in New Jersey and Virginia for Governor, Attorney General, or any other position, please remember this: A REPUBLICAN VOTE MEANS A DRASTIC DROP IN ENE...
+- [16:55 UTC - Mary Barra of General Motors, and Bill Ford of Ford Motor Company, just called to thank me...](115418866635313882/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115418866635313882
+  - Mary Barra of General Motors, and Bill Ford of Ford Motor Company, just called to thank me for putting Tariffs on Mid Size and Large Size Trucks. Their Stock has gone through the r...
+- [16:47 UTC - In addition to everything else, Tariffs on other Countries SAVED our Cattle Ranchers!](115418834028774105/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115418834028774105
+  - In addition to everything else, Tariffs on other Countries SAVED our Cattle Ranchers!
+- [16:42 UTC - The Cattle Ranchers, who I love, don’t understand that the only reason they are doing so w...](115418813519600271/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115418813519600271
+  - The Cattle Ranchers, who I love, don’t understand that the only reason they are doing so well, for the first time in decades, is because I put Tariffs on cattle coming into the Uni...

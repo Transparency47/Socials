@@ -1,0 +1,31 @@
+# TruthSocial / RealDonaldTrump / 2025-10-17
+
+- Posts: 9
+
+- [22:26 UTC - Third Rate Congressman Thomas Massie, a Weak and Pathetic RINO from the Great Commonwealth...](115391855540856433/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115391855540856433
+  - Third Rate Congressman Thomas Massie, a Weak and Pathetic RINO from the Great Commonwealth of Kentucky, a place I love, and won big SIX TIMES, must be thrown out of office, ASAP! T...
+- [22:23 UTC - Whatever happened to “Senator” Rand Paul? He was never great, but he went really BAD! I go...](115391842662459841/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115391842662459841
+  - Whatever happened to “Senator” Rand Paul? He was never great, but he went really BAD! I got him elected, TWICE (in the Great Commonwealth of Kentucky!), but he just never votes pos...
+- [22:04 UTC - George Santos was somewhat of a “rogue,” but there are many rogues throughout our Country ...](115391767709119144/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115391767709119144
+  - George Santos was somewhat of a “rogue,” but there are many rogues throughout our Country that aren’t forced to serve seven years in prison. I started to think about George when th...
+- [20:54 UTC - Thank you to North Carolina’s incredible Republican State Legislators, who just introduced...](115391496046848119/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115391496046848119
+  - Thank you to North Carolina’s incredible Republican State Legislators, who just introduced a new, fair, and improved, Congressional Map, a situation I am watching, and strongly sup...
+- [20:46 UTC - The meeting with President Volodymyr Zelenskyy of Ukraine was very interesting, and cordia...](115391463725537040/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115391463725537040
+  - The meeting with President Volodymyr Zelenskyy of Ukraine was very interesting, and cordial, but I told him, as I likewise strongly suggested to President Putin, that it is time to...
+- [03:59 UTC - A “Blue Slip” means that if you’re a Republican President, and there happens to be just on...](115387504970821391/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115387504970821391
+  - A “Blue Slip” means that if you’re a Republican President, and there happens to be just one Democrat Senator in a state where you are appointing a U.S. Attorney or District Court J...
+- [01:18 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115375759030078892 My wonderful...](115386869985631344/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115386869985631344
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115375759030078892 My wonderful granddaughter just launched a new Series on YouTube, “1 on 1 with Kai.” For her inaugural...
+- [01:16 UTC - The United States Air Force Academy Cadet Chapel has been a CONSTRUCTION DISASTER from the...](115386862652518090/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115386862652518090
+  - The United States Air Force Academy Cadet Chapel has been a CONSTRUCTION DISASTER from the time it was built in 1962. The earlier stories are that it leaked on Day One, and that wa...
+- [01:16 UTC - I have eight GREAT U.S. Attorneys, Highly Respected ALL, who will not be confirmed for the...](115386860322605604/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115386860322605604
+  - I have eight GREAT U.S. Attorneys, Highly Respected ALL, who will not be confirmed for their positions in various Highly Consequential States only because they’re Republicans, and...

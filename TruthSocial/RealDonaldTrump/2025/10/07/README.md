@@ -1,0 +1,43 @@
+# TruthSocial / RealDonaldTrump / 2025-10-07
+
+- Posts: 13
+
+- [17:01 UTC - Truth Social post 115333953145009039](115333953145009039/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115333953145009039
+  - _No text content captured._
+- [16:27 UTC - Truth Social post 115333819376592421](115333819376592421/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115333819376592421
+  - _No text content captured._
+- [16:01 UTC - Truth Social post 115333718074557440](115333718074557440/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115333718074557440
+  - _No text content captured._
+- [16:00 UTC - [https:// amac.us/newsline/economy/schum er-shutdown-trump-republicans-expose-democrat-sch...](115333715653460091/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115333715653460091
+  - [https:// amac.us/newsline/economy/schum er-shutdown-trump-republicans-expose-democrat-schemes-to-give-taxpayer-benefits-to-illegal-aliens/](https://amac.us/newsline/economy/schume...
+- [16:00 UTC - [https://www. foxnews.com/opinion/government -shutdown-democrats-political-weapon-against-...](115333713979871685/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115333713979871685
+  - [https://www. foxnews.com/opinion/government -shutdown-democrats-political-weapon-against-american-families](https://www.foxnews.com/opinion/government-shutdown-democrats-political...
+- [15:59 UTC - Truth Social post 115333712843530045](115333712843530045/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115333712843530045
+  - _No text content captured._
+- [15:59 UTC - [https://www. breitbart.com/politics/2025/10 /05/trump-vows-to-get-service-members-every-l...](115333711744745258/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115333711744745258
+  - [https://www. breitbart.com/politics/2025/10 /05/trump-vows-to-get-service-members-every-last-penny-during-government-shutdown/](https://www.breitbart.com/politics/2025/10/05/trump...
+- [15:59 UTC - [https:// amac.us/newsline/politics/geni us-trumps-intel-investment-skyrockets-50-percent-...](115333710727059381/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115333710727059381
+  - [https:// amac.us/newsline/politics/geni us-trumps-intel-investment-skyrockets-50-percent-in-one-month/](https://amac.us/newsline/politics/genius-trumps-intel-investment-skyrockets...
+- [15:59 UTC - [https://www. foxnews.com/politics/maine-inv estigates-claim-250-unmarked-ballots-found-am...](115333709586655588/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115333709586655588
+  - [https://www. foxnews.com/politics/maine-inv estigates-claim-250-unmarked-ballots-found-amazon-box](https://www.foxnews.com/politics/maine-investigates-claim-250-unmarked-ballots-f...
+- [15:58 UTC - [https://www. foxnews.com/politics/trump-sla ms-democrats-shutting-down-government-demands...](115333708591526361/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115333708591526361
+  - [https://www. foxnews.com/politics/trump-sla ms-democrats-shutting-down-government-demands-reopen-tonight](https://www.foxnews.com/politics/trump-slams-democrats-shutting-down-gove...
+- [12:52 UTC - VOTE TODAY! It is my Great Honor to endorse America First Patriot Matt Van Epps, who is ru...](115332976894666371/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115332976894666371
+  - VOTE TODAY! It is my Great Honor to endorse America First Patriot Matt Van Epps, who is running to represent the Great People of Tennessee’s 7th Congressional District. A West Poin...
+- [12:09 UTC - Deranged Jack Smith got caught with his hand in the cookie jar. A real sleazebag!!!](115332808536869094/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115332808536869094
+  - Deranged Jack Smith got caught with his hand in the cookie jar. A real sleazebag!!!
+- [12:06 UTC - Great interview by highly respected Congressman Michael Baumgartner, Republican of the Gre...](115332793655857227/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115332793655857227
+  - Great interview by highly respected Congressman Michael Baumgartner, Republican of the Great State of Washington, on Maria Bartiromo’s (Who is, by the way, also FANTASTIC!) Show. H...

@@ -1,0 +1,64 @@
+# TruthSocial / RealDonaldTrump / 2025-10-23
+
+- Posts: 20
+
+- [23:37 UTC - [https:// nypost.com/2025/10/22/opinion/ trump-is-rebuilding-our-nations-pride-with-histor...](115426108534331008/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115426108534331008
+  - [https:// nypost.com/2025/10/22/opinion/ trump-is-rebuilding-our-nations-pride-with-historic-white-house-renovations/](https://nypost.com/2025/10/22/opinion/trump-is-rebuilding-our...
+- [23:37 UTC - [https://www. washingtonexaminer.com/news/wa shington-secrets/3861714/historian-craig-shir...](115426107444956686/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115426107444956686
+  - [https://www. washingtonexaminer.com/news/wa shington-secrets/3861714/historian-craig-shirley-dismisses-trump-ballroom-critics/](https://www.washingtonexaminer.com/news/washington-...
+- [23:36 UTC - This month is Down Syndrome Awareness Month. To all of the wonderful Down Syndrome childre...](115426103540693339/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115426103540693339
+  - This month is Down Syndrome Awareness Month. To all of the wonderful Down Syndrome children in our Country, and their parents, who love them so much — You are AMAZING! May God bles...
+- [22:25 UTC - I think the Democrats have gone totally crazy...they don't care about the people. I really...](115425827275887037/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115425827275887037
+  - I think the Democrats have gone totally crazy...they don't care about the people. I really think they have no leadership—They really should approve an extension, get the Country ba...
+- [22:17 UTC - Truth Social post 115425793391173969](115425793391173969/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115425793391173969
+  - _No text content captured._
+- [22:16 UTC - [https://www. breitbart.com/politics/2025/10 /21/exclusive-trumps-dhs-issues-nearly-10-bil...](115425791285627525/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115425791285627525
+  - [https://www. breitbart.com/politics/2025/10 /21/exclusive-trumps-dhs-issues-nearly-10-billion-fines-illegals-so-they-self-deport/](https://www.breitbart.com/politics/2025/10/21/ex...
+- [22:15 UTC - [https://www. dailywire.com/news/thune-trump -warn-democrats-republicans-are-united-and-it...](115425786828177238/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115425786828177238
+  - [https://www. dailywire.com/news/thune-trump -warn-democrats-republicans-are-united-and-its-time-to-end-the-shutdown](https://www.dailywire.com/news/thune-trump-warn-democrats-repu...
+- [22:15 UTC - [https://www. dailywire.com/news/trump-prais es-fbi-historic-number-of-violent-criminals-h...](115425785889155038/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115425785889155038
+  - [https://www. dailywire.com/news/trump-prais es-fbi-historic-number-of-violent-criminals-have-been-arrested](https://www.dailywire.com/news/trump-praises-fbi-historic-number-of-vio...
+- [22:14 UTC - Truth Social post 115425783841377624](115425783841377624/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115425783841377624
+  - _No text content captured._
+- [22:14 UTC - [https://www. foxnews.com/politics/scoop-tru mps-memphis-crime-crackdown-locates-dozens-mi...](115425782336990511/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115425782336990511
+  - [https://www. foxnews.com/politics/scoop-tru mps-memphis-crime-crackdown-locates-dozens-missing-kids-removes-109-gangbangers-from-streets](https://www.foxnews.com/politics/scoop-tr...
+- [22:12 UTC - [https://www. foxnews.com/politics/trump-hos ts-roundtable-efforts-thwart-cartels-human-tr...](115425775629237801/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115425775629237801
+  - [https://www. foxnews.com/politics/trump-hos ts-roundtable-efforts-thwart-cartels-human-trafficking-operations-inherited-disgrace](https://www.foxnews.com/politics/trump-hosts-roun...
+- [17:03 UTC - The Federal Government was preparing to “surge” San Francisco, California, on Saturday, bu...](115424560133045127/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115424560133045127
+  - The Federal Government was preparing to “surge” San Francisco, California, on Saturday, but friends of mine who live in the area called last night to ask me not to go forward with...
+- [04:10 UTC - I spoke with Governor Kelly Armstrong, and informed him of my approval of $3 Million Dolla...](115421521228626427/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115421521228626427
+  - I spoke with Governor Kelly Armstrong, and informed him of my approval of $3 Million Dollars to assist in the aftermath of the major tornadoes and flooding that occurred in the bea...
+- [01:27 UTC - Lee Zeldin: “The Trump EPA is committed to total transparency. I tasked my team at EPA to ...](115420878291596525/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115420878291596525
+  - Lee Zeldin: “The Trump EPA is committed to total transparency. I tasked my team at EPA to compile everything we know about contrails and geoengineering to release to you now public...
+- [01:27 UTC - Truth Social post 115420877727758788](115420877727758788/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115420877727758788
+  - _No text content captured._
+- [01:19 UTC - Truth Social post 115420847933409237](115420847933409237/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115420847933409237
+  - _No text content captured._
+- [01:13 UTC - Truth Social post 115420822908231945](115420822908231945/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115420822908231945
+  - _No text content captured._
+- [01:12 UTC - Senator Josh Hawley dismantles CNN’s narrative about President Trump’s White House renovat...](115420822058223259/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115420822058223259
+  - Senator Josh Hawley dismantles CNN’s narrative about President Trump’s White House renovation during a live interview. When reporter Manu Raju asked: “What about just uprooting the...
+- [00:38 UTC - 14 people were shot over the weekend in Chicago, four DEAD! What does failed Governor Prit...](115420686286814272/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115420686286814272
+  - 14 people were shot over the weekend in Chicago, four DEAD! What does failed Governor Pritzker, and the equally pathetic Mayor, say now? BRING IN THE FEDERAL GOVERNMENT, AND BRING...
+- [00:06 UTC - Ask former President Barack Hussein Obama whether or not he really believes that in 2020 J...](115420559392004198/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115420559392004198
+  - Ask former President Barack Hussein Obama whether or not he really believes that in 2020 Joe Biden got 15 Million more Votes than he did in 2012 (65.9 vs. 81 Million). Additionally...

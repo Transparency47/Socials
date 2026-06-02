@@ -1,0 +1,37 @@
+# TruthSocial / RealDonaldTrump / 2025-10-13
+
+- Posts: 11
+
+- [19:01 UTC - Truth Social post 115368399686825340](115368399686825340/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115368399686825340
+  - _No text content captured._
+- [18:55 UTC - Truth Social post 115368377239417098](115368377239417098/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115368377239417098
+  - _No text content captured._
+- [18:40 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) Pakistani Prime Minister ...](115368318846982968/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115368318846982968
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) Pakistani Prime Minister Shehbaz Sharif praises President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTr...
+- [18:40 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTr...](115368318596799662/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115368318596799662
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) : "With the historic agreement we've just s...
+- [18:40 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) Everyone wants a photo wi...](115368318177325429/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115368318177325429
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) Everyone wants a photo with the Leader of the Free World — THE PRESIDENT OF PEACE!
+- [15:31 UTC - Happy 250th Birthday to the United States Navy!](115367574318732455/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115367574318732455
+  - Happy 250th Birthday to the United States Navy!
+- [13:45 UTC - Truth Social post 115367157122387604](115367157122387604/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115367157122387604
+  - _No text content captured._
+- [13:44 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTr...](115367155634075858/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115367155634075858
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) : "Generations from now, this will be remem...
+- [13:44 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTr...](115367155279842612/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115367155279842612
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) : "This is not only the End of a war—it is...
+- [13:44 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTr...](115367154825399332/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115367154825399332
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) addresses Israel's Knesset: "After two harr...
+- [13:44 UTC - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTr...](115367154057390622/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115367154057390622
+  - RT [@ rapidresponse47](https://truthsocial.com/@rapidresponse47) President [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) signs the guestbook at the Knesset in Jerus...

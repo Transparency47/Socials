@@ -1,0 +1,85 @@
+# TruthSocial / RealDonaldTrump / 2025-10-09
+
+- Posts: 27
+
+- [16:58 UTC - Truth Social post 115345269496182345](115345269496182345/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115345269496182345
+  - _No text content captured._
+- [16:03 UTC - Truth Social post 115345052560925271](115345052560925271/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115345052560925271
+  - _No text content captured._
+- [16:03 UTC - Truth Social post 115345051998622617](115345051998622617/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115345051998622617
+  - _No text content captured._
+- [16:03 UTC - Truth Social post 115345051489526321](115345051489526321/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115345051489526321
+  - _No text content captured._
+- [16:03 UTC - Truth Social post 115345051102296951](115345051102296951/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115345051102296951
+  - _No text content captured._
+- [16:03 UTC - Truth Social post 115345050574673085](115345050574673085/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115345050574673085
+  - _No text content captured._
+- [16:03 UTC - Truth Social post 115345050531144151](115345050531144151/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115345050531144151
+  - _No text content captured._
+- [16:02 UTC - Truth Social post 115345049247698370](115345049247698370/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115345049247698370
+  - _No text content captured._
+- [16:02 UTC - Truth Social post 115345048508640112](115345048508640112/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115345048508640112
+  - _No text content captured._
+- [16:02 UTC - Truth Social post 115345047852293460](115345047852293460/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115345047852293460
+  - _No text content captured._
+- [16:02 UTC - Truth Social post 115345045916137134](115345045916137134/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115345045916137134
+  - _No text content captured._
+- [16:02 UTC - Truth Social post 115345045720837526](115345045720837526/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115345045720837526
+  - _No text content captured._
+- [16:01 UTC - Truth Social post 115345042711125203](115345042711125203/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115345042711125203
+  - _No text content captured._
+- [16:01 UTC - Tariffs are only good if you want your Country to be Rich, Influential, and Powerful. If y...](115345041705180674/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115345041705180674
+  - Tariffs are only good if you want your Country to be Rich, Influential, and Powerful. If you want your Country to be a Third World Country, you should Vote against Tariffs!
+- [16:00 UTC - [https://www. foxnews.com/politics/jack-smit h-tracked-private-communications-calls-nearly...](115345040502981553/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115345040502981553
+  - [https://www. foxnews.com/politics/jack-smit h-tracked-private-communications-calls-nearly-dozen-gop-senators-during-j6-probe-fbi-says](https://www.foxnews.com/politics/jack-smith-...
+- [16:00 UTC - [https://www. illinoisreview.com/illinoisrev iew/2025/10/chicago-police-ordered-to-stand-d...](115345038429206658/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115345038429206658
+  - [https://www. illinoisreview.com/illinoisrev iew/2025/10/chicago-police-ordered-to-stand-down-as-ice-agent-surrounded-legal-experts-warn-of-criminal-liability.html](https://www.ill...
+- [15:59 UTC - [https:// thefederalist.com/2025/10/06/j im-banks-demands-census-bureau-fix-errors-that-ga...](115345037615792401/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115345037615792401
+  - [https:// thefederalist.com/2025/10/06/j im-banks-demands-census-bureau-fix-errors-that-gave-dems-6-extra-seats/](https://thefederalist.com/2025/10/06/jim-banks-demands-census-bure...
+- [15:59 UTC - RT [@ mrddmia](https://truthsocial.com/@mrddmia) Congratulations to [@ AGPamBondi](https:/...](115345036909925262/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115345036909925262
+  - RT [@ mrddmia](https://truthsocial.com/@mrddmia) Congratulations to [@ AGPamBondi](https://truthsocial.com/@AGPamBondi) , U.S. Attorney Jason Reding Quiñones, and the Southern Dist...
+- [15:59 UTC - Gary Player: "The President's speech at the United Nations is without a question one of th...](115345035086352570/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115345035086352570
+  - Gary Player: "The President's speech at the United Nations is without a question one of the greatest speeches I've ever heard, and two of my friends who are not Trump fans are now...
+- [15:43 UTC - To all the FBI Agents who were forced by Christopher Wray to go to the Capitol on the afte...](115344973130792718/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115344973130792718
+  - To all the FBI Agents who were forced by Christopher Wray to go to the Capitol on the afternoon of January 6th, and then risked their careers to blow the whistle about the Politica...
+- [15:42 UTC - Truth Social post 115344970574805174](115344970574805174/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115344970574805174
+  - _No text content captured._
+- [15:42 UTC - Dr. Ben Carson will be an incredible National Nutrition Advisor for the United States Depa...](115344969648448054/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115344969648448054
+  - Dr. Ben Carson will be an incredible National Nutrition Advisor for the United States Department of Agriculture. I will soon be awarding Dr. Carson the Presidential Medal of Freedo...
+- [14:34 UTC - “PRESIDENT TRUMP HAS MADE HISTORY”](115344702341451680/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115344702341451680
+  - “PRESIDENT TRUMP HAS MADE HISTORY”
+- [11:50 UTC - Thank you to Eylon Levy for your words of Wisdom on FoxNews this morning. A great day in t...](115344056627930464/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115344056627930464
+  - Thank you to Eylon Levy for your words of Wisdom on FoxNews this morning. A great day in the Middle East!
+- [11:43 UTC - United States Ambassador Mike Huckabee is AMAZING! He worked so hard, and did so much, to ...](115344029460933968/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115344029460933968
+  - United States Ambassador Mike Huckabee is AMAZING! He worked so hard, and did so much, to bring about Peace in the Middle East. He has very quickly become a Great Man. Thank you Mi...
+- [11:30 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I am very proud to announ...](115343979152082042/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115343979152082042
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) I am very proud to announce that Israel and Hamas have both signed off on the first Phase of our Peace Plan. This m...
+- [03:06 UTC - Truth Social post 115341996348302641](115341996348302641/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115341996348302641
+  - _No text content captured._

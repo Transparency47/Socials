@@ -1,7 +1,121 @@
 # TruthSocial / RealDonaldTrump / 2025-10-25
 
-- Posts: 1
+- Posts: 39
 
 - [22:15 UTC - I am on my way to Malaysia, where I will sign the great Peace Deal, which I proudly broker...](115437112529618205/)
   - Source: https://truthsocial.com/@realDonaldTrump/115437112529618205
   - I am on my way to Malaysia, where I will sign the great Peace Deal, which I proudly brokered between Cambodia and Thailand. Sadly, the Queen Mother of Thailand has just passed away...
+- [21:43 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Canada was caught, red ha...](115436984200406691/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115436984200406691
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Canada was caught, red handed, putting up a fraudulent advertisement on Ronald Reagan’s Speech on Tariffs. The Reag...
+- [21:39 UTC - [https://www. dailysignal.com/2025/10/22/tru mps-middle-east-triumph-embarrassed-self-proc...](115436968622280698/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115436968622280698
+  - [https://www. dailysignal.com/2025/10/22/tru mps-middle-east-triumph-embarrassed-self-proclaimed-experts/](https://www.dailysignal.com/2025/10/22/trumps-middle-east-triumph-embarra...
+- [21:38 UTC - [https://www. foxnews.com/opinion/new-high-t ech-tool-trump-using-secure-our-border](https...](115436967550742005/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115436967550742005
+  - [https://www. foxnews.com/opinion/new-high-t ech-tool-trump-using-secure-our-border](https://www.foxnews.com/opinion/new-high-tech-tool-trump-using-secure-our-border)
+- [21:38 UTC - [https://www. foxnews.com/politics/scoop-tru mps-memphis-crime-crackdown-locates-dozens-mi...](115436966353094571/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115436966353094571
+  - [https://www. foxnews.com/politics/scoop-tru mps-memphis-crime-crackdown-locates-dozens-missing-kids-removes-109-gangbangers-from-streets](https://www.foxnews.com/politics/scoop-tr...
+- [21:38 UTC - [https:// dailycaller.com/2025/10/22/jef f-merkley-floor-speech-government-shutdown/](http...](115436965402016084/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115436965402016084
+  - [https:// dailycaller.com/2025/10/22/jef f-merkley-floor-speech-government-shutdown/](https://dailycaller.com/2025/10/22/jeff-merkley-floor-speech-government-shutdown/)
+- [21:38 UTC - [https://www. foxnews.com/us/new-york-city-i ce-raid-nets-9-arrests-illegal-aliens-from-we...](115436964513421181/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115436964513421181
+  - [https://www. foxnews.com/us/new-york-city-i ce-raid-nets-9-arrests-illegal-aliens-from-west-africa-4-protesters-also-arrested](https://www.foxnews.com/us/new-york-city-ice-raid-ne...
+- [21:38 UTC - [https:// justthenews.com/government/sec urity/deadly-serious-trump-counterterrorism-progr...](115436964139389799/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115436964139389799
+  - [https:// justthenews.com/government/sec urity/deadly-serious-trump-counterterrorism-program-kills-370-jihadists-9-months](https://justthenews.com/government/security/deadly-seriou...
+- [20:30 UTC - Canada was caught, red handed, putting up a fraudulent advertisement on Ronald Reagan’s Sp...](115436697060819133/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115436697060819133
+  - Canada was caught, red handed, putting up a fraudulent advertisement on Ronald Reagan’s Speech on Tariffs. The Reagan Foundation said that they, “created an ad campaign using selec...
+- [19:54 UTC - We have a very strong PEACE in the Middle East, and I believe it has a good chance of bein...](115436558661444946/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115436558661444946
+  - We have a very strong PEACE in the Middle East, and I believe it has a good chance of being EVERLASTING. Hamas is going to have to start returning the bodies of the deceased hostag...
+- [18:36 UTC - [https://www. cnbc.com/2025/10/23/stock-mark et-today-live-updates.html](https://www.cnbc....](115436250208272425/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115436250208272425
+  - [https://www. cnbc.com/2025/10/23/stock-mark et-today-live-updates.html](https://www.cnbc.com/2025/10/23/stock-market-today-live-updates.html)
+- [18:11 UTC - Congressman Jimmy Patronis is a MAGA Warrior who is doing a fantastic job representing Flo...](115436151669143136/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115436151669143136
+  - Congressman Jimmy Patronis is a MAGA Warrior who is doing a fantastic job representing Florida’s 1st Congressional District! A Fourth Generation Floridian from the beautiful Panhan...
+- [15:42 UTC - Richard Hudson is a Great Man, and TREMENDOUS Congressman, who is doing an outstanding job...](115435567269756205/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115435567269756205
+  - Richard Hudson is a Great Man, and TREMENDOUS Congressman, who is doing an outstanding job representing the wonderful people of North Carolina’s 9th Congressional District. As Chai...
+- [15:42 UTC - Congressman David Rouzer is a terrific Representative for the incredible people of North C...](115435565975811522/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115435565975811522
+  - Congressman David Rouzer is a terrific Representative for the incredible people of North Carolina’s 7th Congressional District! A Proven Leader, David served as a Highly Respected...
+- [15:42 UTC - Congressman Addison McDowell is an America First Patriot, who is doing a fantastic job rep...](115435565492870939/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115435565492870939
+  - Congressman Addison McDowell is an America First Patriot, who is doing a fantastic job representing North Carolina’s 6th Congressional District! A MAGA Warrior, Addison previously...
+- [13:50 UTC - Congresswoman Nicole Malliotakis is a Tremendous Champion for New York’s 11th Congressiona...](115435125397678740/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115435125397678740
+  - Congresswoman Nicole Malliotakis is a Tremendous Champion for New York’s 11th Congressional District! As a Member of the POWERFUL Ways & Means Committee, Nicole knows the America F...
+- [12:54 UTC - Congressman Jack Bergman is a Tremendous Champion for the Great People of Michigan's 1st C...](115434906751111005/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115434906751111005
+  - Congressman Jack Bergman is a Tremendous Champion for the Great People of Michigan's 1st Congressional District! A retired Lieutenant General of the U.S. Marine Corps, Jack bravely...
+- [12:47 UTC - Congresswoman Lisa McClain is a Fantastic Advocate for the Great People of Michigan’s 9th ...](115434876884564053/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115434876884564053
+  - Congresswoman Lisa McClain is a Fantastic Advocate for the Great People of Michigan’s 9th Congressional District! As the Chair of the House Republican Conference, Lisa is doing a t...
+- [12:46 UTC - Greg Steube is a tremendous Representative for the Great People of Florida’s 17th Congress...](115434875694997684/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115434875694997684
+  - Greg Steube is a tremendous Representative for the Great People of Florida’s 17th Congressional District! A Former Captain of the U.S. Army JAG Corps, Greg knows the Wisdom and Cou...
+- [12:46 UTC - Congressman Mike Haridopolos is an America First Patriot who is doing a fantastic job repr...](115434874266267478/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115434874266267478
+  - Congressman Mike Haridopolos is an America First Patriot who is doing a fantastic job representing Florida’s 8th Congressional District! A former Teacher, successful Businessman, a...
+- [12:46 UTC - Congressman Randy Fine is a MAGA Warrior who is doing a fantastic job representing Florida...](115434873038322093/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115434873038322093
+  - Congressman Randy Fine is a MAGA Warrior who is doing a fantastic job representing Florida’s 6th Congressional District! A Harvard Educated and Successful Businessman, Randy was a...
+- [12:45 UTC - Congressman Jeff Hurd is an incredible Representative for the Great People of Colorado’s 3...](115434869707731740/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115434869707731740
+  - Congressman Jeff Hurd is an incredible Representative for the Great People of Colorado’s 3rd Congressional District! Jeff has a strong Record of SUCCESS, and resounding support fro...
+- [12:45 UTC - Congressman Andy Ogles is doing a fantastic job representing the incredible people of Tenn...](115434868395866889/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115434868395866889
+  - Congressman Andy Ogles is doing a fantastic job representing the incredible people of Tennessee’s 5th Congressional District! Andy is a Conservative Warrior who has strong support...
+- [12:44 UTC - Congressman Marlin Stutzman is an America First Patriot, who is doing an incredible job re...](115434867478490056/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115434867478490056
+  - Congressman Marlin Stutzman is an America First Patriot, who is doing an incredible job representing the wonderful people of Indiana’s 3rd Congressional District! A Fourth Generati...
+- [12:44 UTC - Congressman Darin LaHood is a Tremendous Champion for Illinois’ 16th Congressional Distric...](115434866506983325/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115434866506983325
+  - Congressman Darin LaHood is a Tremendous Champion for Illinois’ 16th Congressional District! As a Member of the POWERFUL House Ways & Means Committee, Darin understands the America...
+- [12:44 UTC - Congressman Mike Ezell is a fantastic Representative for the wonderful People of Mississip...](115434864876564194/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115434864876564194
+  - Congressman Mike Ezell is a fantastic Representative for the wonderful People of Mississippi’s 4th Congressional District! As the former Sheriff of Jackson County, and now, Highly...
+- [12:44 UTC - Congressman Brad Knott is a terrific Representative for the incredible people of North Car...](115434864384907731/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115434864384907731
+  - Congressman Brad Knott is a terrific Representative for the incredible people of North Carolina’s 13th Congressional District! As a former Criminal Prosecutor, Brad knows the Wisdo...
+- [12:43 UTC - Congressman Chuck Edwards is a MAGA Warrior who is doing a fantastic job representing Nort...](115434862488071211/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115434862488071211
+  - Congressman Chuck Edwards is a MAGA Warrior who is doing a fantastic job representing North Carolina’s 11th Congressional District! A proud Businessman, Civic Leader, and Highly Re...
+- [12:43 UTC - Congressman Greg Murphy, M.D., is a Tremendous Champion for the incredible people of North...](115434861975122052/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115434861975122052
+  - Congressman Greg Murphy, M.D., is a Tremendous Champion for the incredible people of North Carolina’s 3rd Congressional District! A distinguished Surgeon and Member of the House Ve...
+- [04:53 UTC - Congressman Brian Babin, D.D.S, is an incredible Representative of Texas’ 36th Congression...](115433013824981623/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115433013824981623
+  - Congressman Brian Babin, D.D.S, is an incredible Representative of Texas’ 36th Congressional District! As the Highly Respected Chairman of the House Science Committee, Brian is fig...
+- [04:53 UTC - Congressman “Doc” Ronny Jackson is an America First Patriot, who is doing a fantastic job ...](115433013192840304/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115433013192840304
+  - Congressman “Doc” Ronny Jackson is an America First Patriot, who is doing a fantastic job representing Texas’ 13th Congressional District! A distinguished Medical Doctor and U.S. N...
+- [04:53 UTC - Congressman August Pfluger is a Tremendous Champion for Texas’ 11th Congressional District...](115433011980643529/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115433011980643529
+  - Congressman August Pfluger is a Tremendous Champion for Texas’ 11th Congressional District! As the Chairman of the Republican Study Committee, August is doing an incredible job adv...
+- [04:52 UTC - Congressman Jake Ellzey is an America First Patriot who is doing an incredible job represe...](115433011374281959/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115433011374281959
+  - Congressman Jake Ellzey is an America First Patriot who is doing an incredible job representing Texas’ 6th Congressional District! A former Navy fighter pilot and Combat Veteran, J...
+- [04:52 UTC - Congressman Lance Gooden is an America First Patriot, who is doing a fantastic job represe...](115433010735171759/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115433010735171759
+  - Congressman Lance Gooden is an America First Patriot, who is doing a fantastic job representing Texas’ 5th Congressional District! A MAGA Warrior, who has been with us from the ver...
+- [04:52 UTC - Congressman Troy Nehls is doing a truly fantastic job representing the incredible People o...](115433010108866479/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115433010108866479
+  - Congressman Troy Nehls is doing a truly fantastic job representing the incredible People of Texas’ 22nd Congressional District! As former Sheriff of Fort Bend County, and brave U.S...
+- [04:52 UTC - Congressman Keith Self is a Tremendous Advocate for the Great People of Texas’ 3rd Congres...](115433009519508016/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115433009519508016
+  - Congressman Keith Self is a Tremendous Advocate for the Great People of Texas’ 3rd Congressional District! A West Point Graduate and retired Army Ranger, Keith knows the Wisdom and...
+- [04:52 UTC - Congressman Nick Langworthy is an America First Patriot, who is doing a fantastic job repr...](115433008069468996/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115433008069468996
+  - Congressman Nick Langworthy is an America First Patriot, who is doing a fantastic job representing New York’s 23rd Congressional District! Nick served as the powerful Chairman of t...
+- [04:51 UTC - Congressman Eli Crane is an America First Patriot who is doing an incredible job represent...](115433006793180195/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115433006793180195
+  - Congressman Eli Crane is an America First Patriot who is doing an incredible job representing Arizona’s 2nd Congressional District! A retired Navy SEAL, Eli bravely served our Nati...
+- [02:11 UTC - Just in: Documents show conclusively that Christopher Wray, Deranged Jack Smith, Merrick G...](115432378654253078/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115432378654253078
+  - Just in: Documents show conclusively that Christopher Wray, Deranged Jack Smith, Merrick Garland, Lisa Monaco, and other crooked lowlifes from the failed Biden Administration, sign...

@@ -1,0 +1,40 @@
+# TruthSocial / RealDonaldTrump / 2025-10-12
+
+- Posts: 12
+
+- [21:19 UTC - Truth Social post 115363282508325194](115363282508325194/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115363282508325194
+  - _No text content captured._
+- [20:03 UTC - Truth Social post 115362982497975364](115362982497975364/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115362982497975364
+  - _No text content captured._
+- [20:03 UTC - Truth Social post 115362981423345947](115362981423345947/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115362981423345947
+  - _No text content captured._
+- [20:03 UTC - [https://www. foxnews.com/opinion/morning-gl ory-do-you-like-trump](https://www.foxnews.co...](115362980326486735/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115362980326486735
+  - [https://www. foxnews.com/opinion/morning-gl ory-do-you-like-trump](https://www.foxnews.com/opinion/morning-glory-do-you-like-trump)
+- [20:02 UTC - Lord Conrad Black: "Because President Trump did it, there has been little recognition that...](115362978954725477/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115362978954725477
+  - Lord Conrad Black: "Because President Trump did it, there has been little recognition that it is the greatest diplomatic achievement in the Middle East since the founding of the st...
+- [20:01 UTC - Throughout most of our History, America’s Colleges and Universities have been a Great Stra...](115362973187528235/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115362973187528235
+  - Throughout most of our History, America’s Colleges and Universities have been a Great Strategic Asset of the United States. Tragically, however, much of Higher Education has lost i...
+- [16:43 UTC - Don’t worry about China, it will all be fine! Highly respected President Xi just had a bad...](115362196088273474/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115362196088273474
+  - Don’t worry about China, it will all be fine! Highly respected President Xi just had a bad moment. He doesn’t want Depression for his country, and neither do I. The U.S.A. wants to...
+- [15:04 UTC - The Ukraine Impeachment (of me!) Scam was a far bigger Illegal Hoax than Watergate. I sinc...](115361806192142146/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115361806192142146
+  - The Ukraine Impeachment (of me!) Scam was a far bigger Illegal Hoax than Watergate. I sincerely hope the necessary authorities, including CONGRESS, are looking into this! Adam “Sch...
+- [14:03 UTC - [https://www. foxnews.com/opinion/gregg-jarr ett-great-comey-con-how-saint-james-plans-put...](115361566788534006/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115361566788534006
+  - [https://www. foxnews.com/opinion/gregg-jarr ett-great-comey-con-how-saint-james-plans-put-trump-trial-instead](https://www.foxnews.com/opinion/gregg-jarrett-great-comey-con-how-sa...
+- [04:38 UTC - THE BIDEN FBI PLACED 274 AGENTS INTO THE CROWD ON JANUARY 6. If this is so, which it is, a...](115359345947837427/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115359345947837427
+  - THE BIDEN FBI PLACED 274 AGENTS INTO THE CROWD ON JANUARY 6. If this is so, which it is, a lot of very good people will be owed big apologies. What a SCAM - DO SOMETHING!!! Preside...
+- [04:26 UTC - I am pleased to announce that the great Dan Scavino, in addition to remaining Deputy Chief...](115359298785234325/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115359298785234325
+  - I am pleased to announce that the great Dan Scavino, in addition to remaining Deputy Chief of Staff of the Trump Administration, will head the White House Presidential Personnel Of...
+- [03:35 UTC - Great job by super lawyer Bill Brennan on Fake News CNN. He took the third rate “anchor” a...](115359097815090250/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115359097815090250
+  - Great job by super lawyer Bill Brennan on Fake News CNN. He took the third rate “anchor” apart when discussing the legal merit of various cases. They probably won’t have him back a...

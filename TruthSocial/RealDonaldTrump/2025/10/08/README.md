@@ -1,0 +1,61 @@
+# TruthSocial / RealDonaldTrump / 2025-10-08
+
+- Posts: 19
+
+- [23:14 UTC - Truth Social post 115341083538246507](115341083538246507/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115341083538246507
+  - _No text content captured._
+- [22:51 UTC - I am very proud to announce that Israel and Hamas have both signed off on the first Phase ...](115340993884364431/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115340993884364431
+  - I am very proud to announce that Israel and Hamas have both signed off on the first Phase of our Peace Plan. This means that ALL of the Hostages will be released very soon, and Isr...
+- [22:02 UTC - Truth Social post 115340799888496147](115340799888496147/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115340799888496147
+  - _No text content captured._
+- [22:01 UTC - Truth Social post 115340797808055037](115340797808055037/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115340797808055037
+  - _No text content captured._
+- [17:22 UTC - [https:// washingtonreporter.news/p/op-e d-rep-andy-barr-why-im-leading](https://washingto...](115339698175466143/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115339698175466143
+  - [https:// washingtonreporter.news/p/op-e d-rep-andy-barr-why-im-leading](https://washingtonreporter.news/p/op-ed-rep-andy-barr-why-im-leading)
+- [15:19 UTC - Congressman Jeff Van Drew is a “MAGA” Warrior for the incredible people of New Jersey’s 2n...](115339214405326306/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115339214405326306
+  - Congressman Jeff Van Drew is a “MAGA” Warrior for the incredible people of New Jersey’s 2nd Congressional District! As the Chairman of the House Judiciary Subcommittee on Oversight...
+- [14:57 UTC - Congressman Chris Smith is a fantastic Representative for the wonderful people of New Jers...](115339130014906858/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115339130014906858
+  - Congressman Chris Smith is a fantastic Representative for the wonderful people of New Jersey’s 4th Congressional District! As a Senior Member of the House Committee on Foreign Affa...
+- [14:52 UTC - Florida Attorney General James Uthmeier is doing a GREAT job for the Sunshine State, which...](115339108942948542/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115339108942948542
+  - Florida Attorney General James Uthmeier is doing a GREAT job for the Sunshine State, which I won BIG in 2016, 2020, and 2024. James is an America First Warrior, who is a true champ...
+- [12:19 UTC - Chicago Mayor should be in jail for failing to protect Ice Officers! Governor Pritzker als...](115338509988551290/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115338509988551290
+  - Chicago Mayor should be in jail for failing to protect Ice Officers! Governor Pritzker also!
+- [04:12 UTC - Truth Social post 115336593610498496](115336593610498496/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115336593610498496
+  - _No text content captured._
+- [04:10 UTC - Truth Social post 115336586941792277](115336586941792277/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115336586941792277
+  - _No text content captured._
+- [04:10 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Pregnant Women, DON’T USE...](115336586203366680/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115336586203366680
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Pregnant Women, DON’T USE TYLENOL UNLESS ABSOLUTELY NECESSARY, DON’T GIVE TYLENOL TO YOUR YOUNG CHILD FOR VIRTUALLY...
+- [04:02 UTC - Truth Social post 115336554670437446](115336554670437446/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115336554670437446
+  - _No text content captured._
+- [04:02 UTC - MAKE CHICAGO SAFE AGAIN! [https://www. chicagotribune.com/2025/10/06/ chicago-when-nationa...](115336552194960046/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115336552194960046
+  - MAKE CHICAGO SAFE AGAIN! [https://www. chicagotribune.com/2025/10/06/ chicago-when-national-guard-was-activated/](https://www.chicagotribune.com/2025/10/06/chicago-when-national-gu...
+- [04:00 UTC - My goal is very simple. STOP CRIME IN AMERICA! [https://www. history.com/articles/national...](115336547657622506/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115336547657622506
+  - My goal is very simple. STOP CRIME IN AMERICA! [https://www. history.com/articles/national- guard-federal-troops-deployments](https://www.history.com/articles/national-guard-federa...
+- [02:03 UTC - [https:// truthsocial.com/@marklevinshow /115335270855634802](https://truthsocial.com/@mar...](115336086828390910/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115336086828390910
+  - [https:// truthsocial.com/@marklevinshow /115335270855634802](https://truthsocial.com/@marklevinshow/115335270855634802)
+- [02:02 UTC - Wow! Jack Smith and the Biden DOJ spied on Republican Senators and a least one Republican ...](115336083572186272/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115336083572186272
+  - Wow! Jack Smith and the Biden DOJ spied on Republican Senators and a least one Republican Congressman. This is really bad “stuff.” They tried to take down the Republican Party, and...
+- [01:37 UTC - Congratulations to Matt Van Epps on his great victory in Tennessee. He will be a GREAT Con...](115335985411793079/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115335985411793079
+  - Congratulations to Matt Van Epps on his great victory in Tennessee. He will be a GREAT Congressman!!! President DJT
+- [01:26 UTC - Sanctimonious Richard “Da Nang Dick” Blumenthal, perhaps the biggest “joke” in the United ...](115335941705023271/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115335941705023271
+  - Sanctimonious Richard “Da Nang Dick” Blumenthal, perhaps the biggest “joke” in the United States Senate, is at it again! “Dick” lied until the midpoint of his political career, con...

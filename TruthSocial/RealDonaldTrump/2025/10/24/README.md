@@ -1,0 +1,31 @@
+# TruthSocial / RealDonaldTrump / 2025-10-24
+
+- Posts: 9
+
+- [23:18 UTC - Congressman Andrew Clyde is doing a truly fantastic job representing the Great People of G...](115431695569678615/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115431695569678615
+  - Congressman Andrew Clyde is doing a truly fantastic job representing the Great People of Georgia’s 9th Congressional District! A Brave U.S. Navy Veteran, Andrew knows the Wisdom an...
+- [11:31 UTC - THE STOCK MARKET IS STRONGER THAN EVER BEFORE BECAUSE OF TARIFFS!](115428915165145135/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115428915165145135
+  - THE STOCK MARKET IS STRONGER THAN EVER BEFORE BECAUSE OF TARIFFS!
+- [11:29 UTC - THE UNITED STATES IS WEALTHY, POWERFUL, AND NATIONALLY SECURE AGAIN, ALL BECAUSE OF TARIFF...](115428907096790566/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115428907096790566
+  - THE UNITED STATES IS WEALTHY, POWERFUL, AND NATIONALLY SECURE AGAIN, ALL BECAUSE OF TARIFFS! THE MOST IMPORTANT CASE EVER IS IN THE UNITED STATES SUPREME COURT. GOD BLESS AMERICA!!...
+- [11:20 UTC - CANADA CHEATED AND GOT CAUGHT!!!They fraudulently took a big buy ad saying that Ronald Rea...](115428874684902595/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115428874684902595
+  - CANADA CHEATED AND GOT CAUGHT!!!They fraudulently took a big buy ad saying that Ronald Reagan did not like Tariffs, when actually he LOVED TARIFFS FOR OUR COUNTRY, AND ITS NATIONAL...
+- [11:01 UTC - Ford and General Motors UP BIG on Tariffs placed on Big and Midsized Trucks coming from ot...](115428798659352209/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115428798659352209
+  - Ford and General Motors UP BIG on Tariffs placed on Big and Midsized Trucks coming from other countries. Thank you President Trump!
+- [03:15 UTC - The Ronald Reagan Foundation has just announced that Canada has fraudulently used an adver...](115426967566430347/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115426967566430347
+  - The Ronald Reagan Foundation has just announced that Canada has fraudulently used an advertisement, which is FAKE, featuring Ronald Reagan speaking negatively about Tariffs. The ad...
+- [02:39 UTC - MAKE AMERICA GREAT AGAIN!!!](115426826573945929/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115426826573945929
+  - MAKE AMERICA GREAT AGAIN!!!
+- [02:20 UTC - [https:// truthsocial.com/users/GodWins4 EVA/statuses/115420248521563639](https://truthsoc...](115426751072031251/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115426751072031251
+  - [https:// truthsocial.com/users/GodWins4 EVA/statuses/115420248521563639](https://truthsocial.com/users/GodWins4EVA/statuses/115420248521563639)
+- [02:20 UTC - [https:// truthsocial.com/users/mazurikl /statuses/115420273959997726](https://truthsocial...](115426749827825488/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115426749827825488
+  - [https:// truthsocial.com/users/mazurikl /statuses/115420273959997726](https://truthsocial.com/users/mazurikl/statuses/115420273959997726)
