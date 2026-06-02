@@ -1,6 +1,6 @@
 # TruthSocial / RealDonaldTrump / 2026-01-23
 
-- Posts: 74
+- Posts: 127
 
 - [23:48 UTC - I want to thank President Aliyev of Azerbaijan, and Prime Minister Pashinyan of Armenia fo...](115947083395862222/)
   - Source: https://truthsocial.com/@realDonaldTrump/115947083395862222
@@ -224,3 +224,162 @@
 - [06:10 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942923974394234](115942925048968152/)
   - Source: https://truthsocial.com/@realDonaldTrump/115942925048968152
   - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942923974394234
+- [06:10 UTC - Truth Social post 115942923974394234](115942923974394234/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942923974394234
+  - _No text content captured._
+- [06:10 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942909711696332](115942922832317240/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942922832317240
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942909711696332
+- [06:09 UTC - Truth Social post 115942920531302931](115942920531302931/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942920531302931
+  - _No text content captured._
+- [06:06 UTC - Truth Social post 115942909711696332](115942909711696332/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942909711696332
+  - _No text content captured._
+- [06:06 UTC - [https:// x.com/thescif/status/201369505 5333036195?s=10](https://x.com/thescif/status/201...](115942907555392595/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942907555392595
+  - [https:// x.com/thescif/status/201369505 5333036195?s=10](https://x.com/thescif/status/2013695055333036195?s=10)
+- [06:05 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942901786435347](115942903351484355/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942903351484355
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942901786435347
+- [06:04 UTC - Truth Social post 115942901786435347](115942901786435347/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942901786435347
+  - _No text content captured._
+- [06:04 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942899488386629](115942900693059077/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942900693059077
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942899488386629
+- [06:04 UTC - Truth Social post 115942899488386629](115942899488386629/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942899488386629
+  - _No text content captured._
+- [06:03 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942897150403839](115942898383181744/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942898383181744
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942897150403839
+- [06:03 UTC - Truth Social post 115942897150403839](115942897150403839/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942897150403839
+  - _No text content captured._
+- [06:03 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942894962284011](115942896121257651/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942896121257651
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942894962284011
+- [06:02 UTC - Truth Social post 115942894962284011](115942894962284011/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942894962284011
+  - _No text content captured._
+- [06:02 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942891320427170](115942892995122451/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942892995122451
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942891320427170
+- [06:02 UTC - Truth Social post 115942891320427170](115942891320427170/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942891320427170
+  - _No text content captured._
+- [05:59 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942880305077733](115942881397453617/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942881397453617
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942880305077733
+- [05:59 UTC - Truth Social post 115942880305077733](115942880305077733/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942880305077733
+  - _No text content captured._
+- [05:58 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942875404473282](115942878549143672/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942878549143672
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942875404473282
+- [05:57 UTC - Truth Social post 115942875404473282](115942875404473282/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942875404473282
+  - _No text content captured._
+- [05:57 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942870766839354](115942872333845542/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942872333845542
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942870766839354
+- [05:56 UTC - Truth Social post 115942870766839354](115942870766839354/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942870766839354
+  - _No text content captured._
+- [05:56 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942866344000585](115942868420918544/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942868420918544
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942866344000585
+- [05:55 UTC - Truth Social post 115942866344000585](115942866344000585/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942866344000585
+  - _No text content captured._
+- [05:54 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942860600639196](115942861989363129/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942861989363129
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942860600639196
+- [05:54 UTC - Truth Social post 115942860600639196](115942860600639196/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942860600639196
+  - _No text content captured._
+- [05:53 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942855539822977](115942856680136344/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942856680136344
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942855539822977
+- [05:52 UTC - Truth Social post 115942855539822977](115942855539822977/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942855539822977
+  - _No text content captured._
+- [05:52 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942852464420212](115942853623603629/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942853623603629
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942852464420212
+- [05:52 UTC - Truth Social post 115942852464420212](115942852464420212/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942852464420212
+  - _No text content captured._
+- [05:51 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942849468525852](115942850426177511/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942850426177511
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942849468525852
+- [05:51 UTC - Truth Social post 115942849468525852](115942849468525852/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942849468525852
+  - _No text content captured._
+- [05:47 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942831810575684](115942832637993091/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942832637993091
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942831810575684
+- [05:46 UTC - Truth Social post 115942831810575684](115942831810575684/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942831810575684
+  - _No text content captured._
+- [05:46 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942828810959361](115942829715593890/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942829715593890
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942828810959361
+- [05:46 UTC - Truth Social post 115942828810959361](115942828810959361/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942828810959361
+  - _No text content captured._
+- [05:45 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942826211863292](115942827264355110/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942827264355110
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942826211863292
+- [05:45 UTC - Truth Social post 115942826211863292](115942826211863292/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942826211863292
+  - _No text content captured._
+- [05:44 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942819048898834](115942820809644340/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942820809644340
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942819048898834
+- [05:43 UTC - Truth Social post 115942819048898834](115942819048898834/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942819048898834
+  - _No text content captured._
+- [05:43 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942817245193145](115942818088295952/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942818088295952
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942817245193145
+- [05:43 UTC - Truth Social post 115942817245193145](115942817245193145/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942817245193145
+  - _No text content captured._
+- [05:42 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942812398632804](115942815242112223/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942815242112223
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942812398632804
+- [05:41 UTC - Truth Social post 115942812398632804](115942812398632804/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942812398632804
+  - _No text content captured._
+- [05:41 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942809720926780](115942811346553003/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942811346553003
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942809720926780
+- [05:41 UTC - Truth Social post 115942809720926780](115942809720926780/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942809720926780
+  - _No text content captured._
+- [04:21 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942494716954827](115942495894655736/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942495894655736
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942494716954827
+- [04:21 UTC - Truth Social post 115942494716954827](115942494716954827/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942494716954827
+  - _No text content captured._
+- [04:20 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942492881165332](115942493871407326/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942493871407326
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942492881165332
+- [04:20 UTC - Truth Social post 115942492881165332](115942492881165332/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942492881165332
+  - _No text content captured._
+- [04:20 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942490823846307](115942491752255562/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942491752255562
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942490823846307
+- [04:20 UTC - Truth Social post 115942490823846307](115942490823846307/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942490823846307
+  - _No text content captured._
+- [04:19 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942487099453568](115942487958100026/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942487958100026
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/115942487099453568
+- [04:19 UTC - Truth Social post 115942487099453568](115942487099453568/)
+  - Source: https://truthsocial.com/@realDonaldTrump/115942487099453568
+  - _No text content captured._
