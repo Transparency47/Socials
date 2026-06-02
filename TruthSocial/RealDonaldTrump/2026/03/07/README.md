@@ -1,0 +1,58 @@
+# TruthSocial / RealDonaldTrump / 2026-03-07
+
+- Posts: 18
+
+- [21:05 UTC - The United Kingdom, our once Great Ally, maybe the Greatest of them all, is finally giving...](116189925042301817/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116189925042301817
+  - The United Kingdom, our once Great Ally, maybe the Greatest of them all, is finally giving serious thought to sending two aircraft carriers to the Middle East. That’s OK, Prime Min...
+- [17:35 UTC - Truth Social post 116189097976942933](116189097976942933/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116189097976942933
+  - _No text content captured._
+- [15:36 UTC - The United States Senate should focus on, exclusively if necessary, THE SAVE AMERICA ACT!!...](116188629042450259/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116188629042450259
+  - The United States Senate should focus on, exclusively if necessary, THE SAVE AMERICA ACT!!! It’s what everyone wants!!! President DJT
+- [11:11 UTC - Iran, which is being beat to HELL, has apologized and surrendered to its Middle East neigh...](116187586876366061/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116187586876366061
+  - Iran, which is being beat to HELL, has apologized and surrendered to its Middle East neighbors, and promised that it will not shoot at them anymore. This promise was only made beca...
+- [10:10 UTC - [https:// truthsocial.com/@realDonaldTru mp/116162644396687602](https://truthsocial.com/@r...](116187346419235898/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116187346419235898
+  - [https:// truthsocial.com/@realDonaldTru mp/116162644396687602](https://truthsocial.com/@realDonaldTrump/116162644396687602)
+- [10:09 UTC - [https:// truthsocial.com/@realDonaldTru mp/116163464520215003](https://truthsocial.com/@r...](116187342283982320/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116187342283982320
+  - [https:// truthsocial.com/@realDonaldTru mp/116163464520215003](https://truthsocial.com/@realDonaldTrump/116163464520215003)
+- [02:27 UTC - [https:// vandenbergcoalition.org/mar_su rvey/](https://vandenbergcoalition.org/mar_survey...](116185525145806002/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116185525145806002
+  - [https:// vandenbergcoalition.org/mar_su rvey/](https://vandenbergcoalition.org/mar_survey/)
+- [02:24 UTC - Truth Social post 116185517152817597](116185517152817597/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116185517152817597
+  - _No text content captured._
+- [02:18 UTC - GREGG JARRETT: Democrat war powers vote was an unconstitutional way to halt Iran strikes: ...](116185492043628345/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116185492043628345
+  - GREGG JARRETT: Democrat war powers vote was an unconstitutional way to halt Iran strikes: [https://www. foxnews.com/opinion/gregg-jarr ett-democrat-war-powers-vote-unconstitutional...
+- [01:35 UTC - I will be going to Dover Air Force Base tomorrow, with the First Lady and Members of my Ca...](116185324473510188/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116185324473510188
+  - I will be going to Dover Air Force Base tomorrow, with the First Lady and Members of my Cabinet, to pay our Highest Respect to our Great Warriors, who are returning home for the la...
+- [01:17 UTC - Men’s Gold Medal Hockey Team!](116185253653403697/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116185253653403697
+  - Men’s Gold Medal Hockey Team!
+- [00:23 UTC - Truth Social post 116185038349852236](116185038349852236/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116185038349852236
+  - _No text content captured._
+- [00:22 UTC - Truth Social post 116185037036228151](116185037036228151/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116185037036228151
+  - _No text content captured._
+- [00:22 UTC - Truth Social post 116185036165952004](116185036165952004/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116185036165952004
+  - _No text content captured._
+- [00:22 UTC - Truth Social post 116185035196848198](116185035196848198/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116185035196848198
+  - _No text content captured._
+- [00:22 UTC - Truth Social post 116185034391388762](116185034391388762/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116185034391388762
+  - _No text content captured._
+- [00:21 UTC - Truth Social post 116185033516460457](116185033516460457/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116185033516460457
+  - _No text content captured._
+- [00:21 UTC - Truth Social post 116185032849564901](116185032849564901/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116185032849564901
+  - _No text content captured._

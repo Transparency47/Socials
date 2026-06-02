@@ -1,0 +1,88 @@
+# TruthSocial / RealDonaldTrump / 2026-03-11
+
+- Posts: 28
+
+- [23:39 UTC - Gavin Newscum’s interview weeks ago was, perhaps, the most self destructive interview I’ve...](116213176186506012/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116213176186506012
+  - Gavin Newscum’s interview weeks ago was, perhaps, the most self destructive interview I’ve ever seen. In one fell swoop, he took himself out of even being considered as the Preside...
+- [23:30 UTC - Marty Jackley has been a tremendous Attorney General of South Dakota, a place I love and W...](116213141577677778/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116213141577677778
+  - Marty Jackley has been a tremendous Attorney General of South Dakota, a place I love and WON BIG, six times, including Primaries, in 2016, 2020, and 2024! An America First Patriot,...
+- [23:29 UTC - It is my Great Honor to endorse Colonel Laurie Buckhout, who is running to represent the i...](116213139152922657/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116213139152922657
+  - It is my Great Honor to endorse Colonel Laurie Buckhout, who is running to represent the incredible people of North Carolina’s 1st Congressional District. Laurie is running against...
+- [23:22 UTC - Today I am endorsing America First Patriot, Brandon Herrera, who is running to represent t...](116213110990414470/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116213110990414470
+  - Today I am endorsing America First Patriot, Brandon Herrera, who is running to represent the wonderful people of Texas’ 23rd Congressional District. Brandon is strongly supported b...
+- [22:16 UTC - Top DOJ prosecutor says tens of thousands of noncitizens on voter rolls, dozens illegally ...](116212852948843659/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116212852948843659
+  - Top DOJ prosecutor says tens of thousands of noncitizens on voter rolls, dozens illegally voted: [https:// justthenews.com/politics-polic y/elections/wedelection-bombshell-top-doj-...
+- [17:37 UTC - I am on my way to the Great State of Ohio, which I love and WON BIG three times, to visit ...](116211753106602288/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116211753106602288
+  - I am on my way to the Great State of Ohio, which I love and WON BIG three times, to visit Thermo Fisher, a Pharmaceutical Manufacturing Company, that is investing $2 Billion Dollar...
+- [17:33 UTC - The Republican Party’s Worst “Congressman,” EVER, Thomas Massie, is attacking GREAT Navy S...](116211737655789420/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116211737655789420
+  - The Republican Party’s Worst “Congressman,” EVER, Thomas Massie, is attacking GREAT Navy Seal Hero, Ed Gallrein, who is running against him in the Primary, saying that Ed became an...
+- [15:02 UTC - Truth Social post 116211146074379121](116211146074379121/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116211146074379121
+  - _No text content captured._
+- [14:54 UTC - PUNXSUTAWNEY PHIL SEES ZERO MORE YEARS OF SUMMERS. Summers To Resign From Teaching Appoint...](116211112963892984/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116211112963892984
+  - PUNXSUTAWNEY PHIL SEES ZERO MORE YEARS OF SUMMERS. Summers To Resign From Teaching Appointments, Relinquish University Professorship Over Epstein Ties: [https://www. thecrimson.com...
+- [14:48 UTC - Trump targeted by four FBI code-named counterintel probes that ensnared hundreds of Americ...](116211091235254854/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116211091235254854
+  - Trump targeted by four FBI code-named counterintel probes that ensnared hundreds of Americans: [https:// justthenews.com/government/fed eral-agencies/trump-targeted-four-consecutiv...
+- [14:48 UTC - Trump right to revisit the 2020 elections: [https://www. washingtontimes.com/news/2026/ fe...](116211089985611564/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116211089985611564
+  - Trump right to revisit the 2020 elections: [https://www. washingtontimes.com/news/2026/ feb/19/trump-right-revisit-2020-elections/](https://www.washingtontimes.com/news/2026/feb/19...
+- [14:48 UTC - Hillary Clinton should’ve heeded my ‘reality Czech’ to save the West: [https:// nypost.com...](116211088596192977/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116211088596192977
+  - Hillary Clinton should’ve heeded my ‘reality Czech’ to save the West: [https:// nypost.com/2026/02/18/opinion/ hillary-clinton-shouldve-heeded-my-reality-czech-to-save-the-west/](h...
+- [14:45 UTC - Harvard should not hire this misfit! [https:// freebeacon.com/campus/meet-the -next-chair-...](116211077818747356/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116211077818747356
+  - Harvard should not hire this misfit! [https:// freebeacon.com/campus/meet-the -next-chair-of-the-harvard-history-dept-who-called-trump-narcissist-white-supremacist-habitual-liar-lu...
+- [11:45 UTC - I predict that “Representative”Thomas Massie will go down as the WORST Republican Congress...](116210369394250268/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116210369394250268
+  - I predict that “Representative”Thomas Massie will go down as the WORST Republican Congressman in the long and fabled history of the United States Congress, even worse than Crazy Li...
+- [11:22 UTC - Clay Fuller is going to be a fantastic Congressman in representing the Great State of Geor...](116210278812822198/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116210278812822198
+  - Clay Fuller is going to be a fantastic Congressman in representing the Great State of Georgia. Now we have to be careful and finish it off. MAKE AMERICA GREAT AGAIN!!! President DJ...
+- [03:49 UTC - Congratulations to Clay Fuller, of Georgia’s 14th Congressional District, on getting such ...](116208498011933842/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116208498011933842
+  - Congratulations to Clay Fuller, of Georgia’s 14th Congressional District, on getting such a high percentage of the vote with 12 Republicans running. We want to make the next vote “...
+- [03:21 UTC - Trump targeted by four FBI code-named counterintel probes that ensnared hundreds of Americ...](116208389014489575/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116208389014489575
+  - Trump targeted by four FBI code-named counterintel probes that ensnared hundreds of Americans: [https:// justthenews.com/government/fed eral-agencies/trump-targeted-four-consecutiv...
+- [03:10 UTC - THE SAVE AMERICA ACT is by far the most popular Bill of its kind ever put before Congress!...](116208344727934829/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116208344727934829
+  - THE SAVE AMERICA ACT is by far the most popular Bill of its kind ever put before Congress! President DJT
+- [02:48 UTC - Truth Social post 116208257097837824](116208257097837824/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116208257097837824
+  - _No text content captured._
+- [02:47 UTC - Truth Social post 116208256454031089](116208256454031089/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116208256454031089
+  - _No text content captured._
+- [02:47 UTC - Truth Social post 116208255441178066](116208255441178066/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116208255441178066
+  - _No text content captured._
+- [02:47 UTC - Truth Social post 116208254416759781](116208254416759781/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116208254416759781
+  - _No text content captured._
+- [02:47 UTC - Truth Social post 116208253619093465](116208253619093465/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116208253619093465
+  - _No text content captured._
+- [02:46 UTC - Truth Social post 116208252468441641](116208252468441641/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116208252468441641
+  - _No text content captured._
+- [00:57 UTC - Trump targeted by four FBI code-named counterintel probes that ensnared hundreds of Americ...](116207822892067202/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116207822892067202
+  - Trump targeted by four FBI code-named counterintel probes that ensnared hundreds of Americans: [https:// justthenews.com/government/fed eral-agencies/trump-targeted-four-consecutiv...
+- [00:57 UTC - 52% of US Likely Voters support Trump’s decision to strike Iran: Poll: [https:// justthene...](116207821606085249/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116207821606085249
+  - 52% of US Likely Voters support Trump’s decision to strike Iran: Poll: [https:// justthenews.com/politics-polic y/polling/52-us-likely-voters-support-trumps-decision-strike-iran-po...
+- [00:25 UTC - The incredible people of Kentucky’s 4th Congressional District, who want desperately to ge...](116207697653886877/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116207697653886877
+  - The incredible people of Kentucky’s 4th Congressional District, who want desperately to get rid of Thomas Massie, the Worst “Republican” Congressman we have had in many years, gave...
+- [00:20 UTC - One of the many criminals picked up in Memphis, Tennessee. He will not be allowed to kill ...](116207676745815880/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116207676745815880
+  - One of the many criminals picked up in Memphis, Tennessee. He will not be allowed to kill again!

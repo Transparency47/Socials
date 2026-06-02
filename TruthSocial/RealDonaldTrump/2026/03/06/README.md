@@ -1,0 +1,91 @@
+# TruthSocial / RealDonaldTrump / 2026-03-06
+
+- Posts: 29
+
+- [20:46 UTC - We just concluded a very good meeting with the largest U.S. Defense Manufacturing Companie...](116184185735585906/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116184185735585906
+  - We just concluded a very good meeting with the largest U.S. Defense Manufacturing Companies where we discussed Production and Production Schedules. They have agreed to quadruple Pr...
+- [19:04 UTC - Truth Social post 116183783463148122](116183783463148122/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116183783463148122
+  - _No text content captured._
+- [16:04 UTC - Truth Social post 116183078331691048](116183078331691048/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116183078331691048
+  - _No text content captured._
+- [16:04 UTC - Ruddy: Trump Faces Down Biggest Fake News: [https://www. newsmax.com/world/globaltalk/d on...](116183077071476578/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116183077071476578
+  - Ruddy: Trump Faces Down Biggest Fake News: [https://www. newsmax.com/world/globaltalk/d onald-trump-christopher-ruddy-munich/2026/02/12/id/1245975/](https://www.newsmax.com/world/g...
+- [16:04 UTC - [https://www. justice.gov/opa/pr/justice-dep artment-sues-harvard-university-withholding-r...](116183076016216866/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116183076016216866
+  - [https://www. justice.gov/opa/pr/justice-dep artment-sues-harvard-university-withholding-race-related-admissions-documents](https://www.justice.gov/opa/pr/justice-department-sues-h...
+- [16:03 UTC - Truth Social post 116183075092751676](116183075092751676/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116183075092751676
+  - _No text content captured._
+- [16:03 UTC - President Trump pledges to help Utah save the Great Salt Lake: [https://www. fox13now.com/...](116183074199338333/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116183074199338333
+  - President Trump pledges to help Utah save the Great Salt Lake: [https://www. fox13now.com/news/politics/pre sident-trump-pledges-to-help-utah-save-the-great-salt-lake](https://www....
+- [16:03 UTC - U.S. Trade Deficit Nearly Cut in Half Since Liberation Day: [https://www. breitbart.com/ec...](116183073116586511/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116183073116586511
+  - U.S. Trade Deficit Nearly Cut in Half Since Liberation Day: [https://www. breitbart.com/economy/2026/02/ 19/u-s-trade-deficit-nearly-cut-in-half-since-liberation-day/](https://www....
+- [16:03 UTC - Syrians warm up to US and Israel under new regime, poll finds: [https:// nypost.com/2026/0...](116183071716707971/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116183071716707971
+  - Syrians warm up to US and Israel under new regime, poll finds: [https:// nypost.com/2026/02/15/world-ne ws/syrians-warm-up-to-us-and-israel-under-new-regime-poll-finds/](https://ny...
+- [16:02 UTC - White House Torches CNN, MS NOW for Not Broadcasting Trump’s Angel Family Day Ceremony: [h...](116183070152538648/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116183070152538648
+  - White House Torches CNN, MS NOW for Not Broadcasting Trump’s Angel Family Day Ceremony: [https://www. breitbart.com/politics/2026/02 /23/white-house-torches-cnn-ms-now-for-not-broa...
+- [16:02 UTC - Trump declares National Angel Family Day for illegal immigrants’ victims: [https://www. wa...](116183069134046672/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116183069134046672
+  - Trump declares National Angel Family Day for illegal immigrants’ victims: [https://www. washingtonexaminer.com/news/wh ite-house/4465340/trump-national-angel-family-day-illegal-imm...
+- [16:02 UTC - Georgia Full-Line Steel Service Center President Says Trump’s Tariffs Saved Business: [htt...](116183067945192625/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116183067945192625
+  - Georgia Full-Line Steel Service Center President Says Trump’s Tariffs Saved Business: [https://www. breitbart.com/politics/2026/02 /20/georgia-full-line-steel-service-center-presid...
+- [16:01 UTC - Trump honors Laken Riley, other illegal migrant crime victims at 'Angel Family Day' event:...](116183066623288188/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116183066623288188
+  - Trump honors Laken Riley, other illegal migrant crime victims at 'Angel Family Day' event: [https:// foxbaltimore.com/news/nation-w orld/trump-to-honor-laken-riley-other-crime-vict...
+- [16:01 UTC - Angel Families praise Trump for immigration crackdown: 'You are the man': [https://www. fo...](116183065027273499/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116183065027273499
+  - Angel Families praise Trump for immigration crackdown: 'You are the man': [https://www. foxnews.com/politics/angel-fam ilies-praise-trump-immigration-crackdown-you-man](https://www...
+- [16:01 UTC - EXCLUSIVE: Trump Celebrates Milestone in Serving Veterans: [https://www. dailysignal.com/2...](116183063685022383/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116183063685022383
+  - EXCLUSIVE: Trump Celebrates Milestone in Serving Veterans: [https://www. dailysignal.com/2026/02/23/exc lusive-trump-celebrates-milestone-serving-veterans/](https://www.dailysignal...
+- [16:00 UTC - ‘Total Disgrace’: Karoline Leavitt Tears Into CNN, MSNOW For Not Airing Angel Families Eve...](116183062002755029/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116183062002755029
+  - ‘Total Disgrace’: Karoline Leavitt Tears Into CNN, MSNOW For Not Airing Angel Families Event: [https:// dailycaller.com/2026/02/23/tot al-disgrace-karoline-leavitt-tears-into-cnn-m...
+- [15:59 UTC - Stephen Moore: “New Unleash Prosperity study: 401(k) balance under Trump saw an inflation-...](116183059398944254/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116183059398944254
+  - Stephen Moore: “New Unleash Prosperity study: 401(k) balance under Trump saw an inflation-adjusted gain of $20,700 (15.1%) for American workers By contrast, during the four years o...
+- [15:13 UTC - Truth Social post 116182875457790820](116182875457790820/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116182875457790820
+  - _No text content captured._
+- [15:08 UTC - We are moving thousands of people out of various Countries throughout the Middle East. It ...](116182858456252484/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116182858456252484
+  - We are moving thousands of people out of various Countries throughout the Middle East. It is being done quietly, but seamlessly. The State Department, under Secretary Marco Rubio,...
+- [14:51 UTC - Trump calls Bill Maher a 'jerk,' adding that dinner with him was 'a total waste of time': ...](116182789967579091/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116182789967579091
+  - Trump calls Bill Maher a 'jerk,' adding that dinner with him was 'a total waste of time': [https:// kutv.com/news/nation-world/tru mp-calls-bill-maher-a-jerk-adding-that-dinner-wit...
+- [14:51 UTC - Trump Rages at Bill Maher: ‘No Different Than Kimmel or Colbert’: [https:// latenighter.co...](116182788802634681/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116182788802634681
+  - Trump Rages at Bill Maher: ‘No Different Than Kimmel or Colbert’: [https:// latenighter.com/news/donald-tr ump-bill-maher-china-end-canada-hockey-post/](https://latenighter.com/new...
+- [14:50 UTC - Trump slams Bill Maher in Truth Social post as ‘extremely nervous’ with ‘ZERO confidence i...](116182787199648959/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116182787199648959
+  - Trump slams Bill Maher in Truth Social post as ‘extremely nervous’ with ‘ZERO confidence in himself’: [https:// nypost.com/2026/02/14/us-news/ trump-slams-bill-maher-in-truth-socia...
+- [14:50 UTC - Trump Calls Dinner With Maher a Waste of Time: [https://www. newsmax.com/newsfront/trump-m...](116182786028414663/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116182786028414663
+  - Trump Calls Dinner With Maher a Waste of Time: [https://www. newsmax.com/newsfront/trump-ma her-truth-social/2026/02/14/id/1246167/](https://www.newsmax.com/newsfront/trump-maher-t...
+- [14:50 UTC - 'Overrated LIGHTWEIGHT': Trump roasts famous TDS-ridden TV host in Valentine's Day morning...](116182784868917876/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116182784868917876
+  - 'Overrated LIGHTWEIGHT': Trump roasts famous TDS-ridden TV host in Valentine's Day morning message: [https://www. theblaze.com/news/overrated-li ghtweight-trump-roasts-famous-tds-r...
+- [14:49 UTC - Trump Slams Bill Maher as a ‘Highly Overrated Lightweight’ and Calls Their White House Din...](116182783561396898/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116182783561396898
+  - Trump Slams Bill Maher as a ‘Highly Overrated Lightweight’ and Calls Their White House Dinner a ‘Complete Waste of Time’: ‘He Is No Different Than Kimmel, Fallon, or Colbert’: [htt...
+- [14:49 UTC - Donald Trump Rages At Bill Maher, Says “It Was A Total Waste Of Time For Me To Have This J...](116182782234801440/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116182782234801440
+  - Donald Trump Rages At Bill Maher, Says “It Was A Total Waste Of Time For Me To Have This Jerk At The White House”: [https:// deadline.com/2026/02/trump-bil l-maher-white-house-dinn...
+- [14:49 UTC - Trump Breaks Up With Bill Maher On Valentine's Day: [https://www. huffpost.com/entry/trump...](116182780764441930/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116182780764441930
+  - Trump Breaks Up With Bill Maher On Valentine's Day: [https://www. huffpost.com/entry/trump-break s-up-with-bill-maher-on-valentines-day_n_6990b5eee4b0d24cb0c47b58](https://www.huff...
+- [13:50 UTC - There will be no deal with Iran except UNCONDITIONAL SURRENDER! After that, and the select...](116182551337254643/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116182551337254643
+  - There will be no deal with Iran except UNCONDITIONAL SURRENDER! After that, and the selection of a GREAT & ACCEPTABLE Leader(s), we, and many of our wonderful and very brave allies...
+- [00:09 UTC - The wonderful Lou Holtz passed away yesterday, so sad. Lou was an absolute WINNER both on ...](116179321036412853/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116179321036412853
+  - The wonderful Lou Holtz passed away yesterday, so sad. Lou was an absolute WINNER both on and off the field. Not only did he spearhead Notre Dame’s HISTORIC undefeated season in 19...

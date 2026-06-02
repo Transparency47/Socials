@@ -1,0 +1,52 @@
+# TruthSocial / RealDonaldTrump / 2026-03-13
+
+- Posts: 16
+
+- [23:43 UTC - Iran had plans of taking over the entire Middle East, and completely obliterating Israel. ...](116224518730089644/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116224518730089644
+  - Iran had plans of taking over the entire Middle East, and completely obliterating Israel. JUST LIKE IRAN ITSELF, THOSE PLANS ARE NOW DEAD! President DONALD J. TRUMP
+- [22:54 UTC - Moments ago, at my direction, the United States Central Command executed one of the most p...](116224324444349237/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116224324444349237
+  - Moments ago, at my direction, the United States Central Command executed one of the most powerful bombing raids in the History of the Middle East, and totally obliterated every MIL...
+- [22:18 UTC - It is my Great Honor to endorse America First Patriot, Jon Maples, who is running to repre...](116224183027304989/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116224183027304989
+  - It is my Great Honor to endorse America First Patriot, Jon Maples, who is running to represent the wonderful people of Florida’s 87th State House District. Jon is a very successful...
+- [22:17 UTC - After meeting with Governor Gretchen Whitmer, and hearing from our GREAT Republican Candid...](116224179318558161/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116224179318558161
+  - After meeting with Governor Gretchen Whitmer, and hearing from our GREAT Republican Candidate for the United States Senate, Mike Rogers, I approved $100 Million Dollars in Public A...
+- [21:05 UTC - Thank you to Highly Respected America First Congresswoman, Stephanie Bice, of the Great St...](116223896071757407/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116223896071757407
+  - Thank you to Highly Respected America First Congresswoman, Stephanie Bice, of the Great State of Oklahoma, for deciding, because of her love for her Constituents, and for America,...
+- [20:35 UTC - I am pleased to announce that Matt Floca, subject to the approval of the Board of Director...](116223780884576729/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116223780884576729
+  - I am pleased to announce that Matt Floca, subject to the approval of the Board of Directors, will be named the Chief Operating Officer and Executive Director, of THE TRUMP KENNEDY...
+- [20:32 UTC - Maggot Hagerman, just another SLEAZEBAG writer for The Failing New York Times, insists on ...](116223767250350057/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116223767250350057
+  - Maggot Hagerman, just another SLEAZEBAG writer for The Failing New York Times, insists on writing false stories about me, even though she fully knows and understands that the exact...
+- [18:13 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116223216183546905](116223220117412692/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116223220117412692
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116223216183546905
+- [18:12 UTC - Truth Social post 116223216183546905](116223216183546905/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116223216183546905
+  - _No text content captured._
+- [17:43 UTC - Two renderings of the new, highly improved, TRUMP KENNEDY CENTER!](116223100937937927/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116223100937937927
+  - Two renderings of the new, highly improved, TRUMP KENNEDY CENTER!
+- [13:54 UTC - Cuba confirms talks with Trump officials, raising hopes for US deal: [https://www. usatoda...](116222200536303389/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116222200536303389
+  - Cuba confirms talks with Trump officials, raising hopes for US deal: [https://www. usatoday.com/story/news/world/ 2026/03/13/cuba-confirms-talks-trump-economic-deal/89132765007/](h...
+- [13:53 UTC - Retired Army general: Iran regime ‘fundamentally miscalculated’ Trump: [https:// thehill.c...](116222199294615751/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116222199294615751
+  - Retired Army general: Iran regime ‘fundamentally miscalculated’ Trump: [https:// thehill.com/policy/defense/577 7128-jack-keane-iran-regime-trump-administration/](https://thehill.c...
+- [12:27 UTC - RT [@ DanScavino](https://truthsocial.com/@DanScavino)](116221859127908022/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116221859127908022
+  - RT [@ DanScavino](https://truthsocial.com/@DanScavino)
+- [04:34 UTC - [https:// truthsocial.com/@DanScavino/11 6207137060584916](https://truthsocial.com/@DanSca...](116220000279270929/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116220000279270929
+  - [https:// truthsocial.com/@DanScavino/11 6207137060584916](https://truthsocial.com/@DanScavino/116207137060584916)
+- [04:33 UTC - We are totally destroying the terrorist regime of Iran, militarily, economically, and othe...](116219996530067941/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116219996530067941
+  - We are totally destroying the terrorist regime of Iran, militarily, economically, and otherwise, yet, if you read the Failing New York Times, you would incorrectly think that we ar...
+- [00:57 UTC - At Military Academy with my parents, Fred and Mary!](116219148622456831/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116219148622456831
+  - At Military Academy with my parents, Fred and Mary!

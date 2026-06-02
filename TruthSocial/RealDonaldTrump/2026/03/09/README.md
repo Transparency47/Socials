@@ -1,0 +1,46 @@
+# TruthSocial / RealDonaldTrump / 2026-03-09
+
+- Posts: 14
+
+- [23:54 UTC - Nolte: Cassidy ‘Trump Attacked Secret Service Agent’ Hutchinson Referred for Criminal Char...](116201913738494775/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116201913738494775
+  - Nolte: Cassidy ‘Trump Attacked Secret Service Agent’ Hutchinson Referred for Criminal Charges: [https://www. breitbart.com/politics/2026/03 /06/nolte-cassidy-trump-attacked-secret-...
+- [17:23 UTC - Donald’s Bible: [https:// youtu.be/SSL7_QV4960?feature=s hared](https://youtu.be/SSL7_QV49...](116200375013104800/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116200375013104800
+  - Donald’s Bible: [https:// youtu.be/SSL7_QV4960?feature=s hared](https://youtu.be/SSL7_QV4960?feature=shared)
+- [17:22 UTC - Kim Clement prophesying about Donald Trump, 2007: [https://www. youtube.com/watch?v=eFfFtq...](116200371638821370/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116200371638821370
+  - Kim Clement prophesying about Donald Trump, 2007: [https://www. youtube.com/watch?v=eFfFtq1flj Y](https://www.youtube.com/watch?v=eFfFtq1fljY)
+- [16:52 UTC - THE SAVE AMERICA ACT! 1. ALL VOTERS MUST SHOW VOTER I.D. (IDENTIFICATION!). 2. ALL VOTERS ...](116200253375013431/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116200253375013431
+  - THE SAVE AMERICA ACT! 1. ALL VOTERS MUST SHOW VOTER I.D. (IDENTIFICATION!). 2. ALL VOTERS MUST SHOW PROOF OF CITIZENSHIP IN ORDER TO VOTE. 3. NO MAIL-IN BALLOTS (EXCEPT FOR ILLNESS...
+- [16:43 UTC - Many important meetings and phone calls taking place today while I am at Trump National Do...](116200217053294630/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116200217053294630
+  - Many important meetings and phone calls taking place today while I am at Trump National Doral, in Miami. Additionally, I will be going to Speaker Mike Johnson’s (who is doing a fan...
+- [15:55 UTC - I just spoke to Prime Minister Anthony Albanese, of Australia, concerning the Iranian Nati...](116200028617921781/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116200028617921781
+  - I just spoke to Prime Minister Anthony Albanese, of Australia, concerning the Iranian National Women’s Soccer Team. He’s on it! Five have already been taken care of, and the rest a...
+- [14:30 UTC - ASYLUM!](116199696068251039/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116199696068251039
+  - ASYLUM!
+- [14:16 UTC - Australia is making a terrible humanitarian mistake by allowing the Iran National Woman’s ...](116199640636892669/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116199640636892669
+  - Australia is making a terrible humanitarian mistake by allowing the Iran National Woman’s Soccer team to be forced back to Iran, where they will most likely be killed. Don’t do it,...
+- [14:00 UTC - Truth Social post 116199577286194707](116199577286194707/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116199577286194707
+  - _No text content captured._
+- [13:57 UTC - Truth Social post 116199565947438958](116199565947438958/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116199565947438958
+  - _No text content captured._
+- [13:57 UTC - Truth Social post 116199563355630270](116199563355630270/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116199563355630270
+  - _No text content captured._
+- [13:54 UTC - Truth Social post 116199551472806209](116199551472806209/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116199551472806209
+  - _No text content captured._
+- [13:11 UTC - Great!!! FBI secretly seizes election records from Arizona’s largest county as voting prob...](116199384958218035/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116199384958218035
+  - Great!!! FBI secretly seizes election records from Arizona’s largest county as voting probe expands: [https:// justthenews.com/politics-polic y/elections/monfbi-secretly-seizes-ele...
+- [01:51 UTC - It’s not the Save Act, it’s The Save America Act! A MUCH better, and more important, name!...](116196711651701576/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116196711651701576
+  - It’s not the Save Act, it’s The Save America Act! A MUCH better, and more important, name!!! President DJT

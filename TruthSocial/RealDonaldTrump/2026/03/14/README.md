@@ -1,0 +1,67 @@
+# TruthSocial / RealDonaldTrump / 2026-03-14
+
+- Posts: 21
+
+- [19:25 UTC - McLaughlin: Strong Majority Backs Trump in Stopping Iran's Nuclear Ambitions: [https://www...](116229166794959253/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116229166794959253
+  - McLaughlin: Strong Majority Backs Trump in Stopping Iran's Nuclear Ambitions: [https://www. newsmax.com/mclaughlin/cable-n uclear-weapons/2026/03/12/id/1249304/](https://www.newsma...
+- [18:58 UTC - The United States of America has beaten and completely decimated Iran, both Militarily, Ec...](116229058692001771/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116229058692001771
+  - The United States of America has beaten and completely decimated Iran, both Militarily, Economically, and in every other way, but the Countries of the World that receive Oil throug...
+- [15:02 UTC - Truth Social post 116228130264134892](116228130264134892/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116228130264134892
+  - _No text content captured._
+- [14:04 UTC - Many Countries, especially those who are affected by Iran’s attempted closure of the Hormu...](116227904143399817/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116227904143399817
+  - Many Countries, especially those who are affected by Iran’s attempted closure of the Hormuz Strait, will be sending War Ships, in conjunction with the United States of America, to...
+- [13:35 UTC - Yet again, an intentionally misleading headline by the Fake News Media about the five tank...](116227789768118115/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116227789768118115
+  - Yet again, an intentionally misleading headline by the Fake News Media about the five tanker planes that were supposedly struck down at an Airport in Saudi Arabia, and of no furthe...
+- [12:08 UTC - Thank you to Johnny Jones and all of our GREAT TSA Agents who are going to work but not be...](116227449614232103/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116227449614232103
+  - Thank you to Johnny Jones and all of our GREAT TSA Agents who are going to work but not being paid because the Radical Left Democrats refuse to honor the deal that was approved and...
+- [03:53 UTC - The Fake News Media hates to report how well the United States Military has done against I...](116225502010036899/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116225502010036899
+  - The Fake News Media hates to report how well the United States Military has done against Iran, which is totally defeated and wants a deal - But not a deal that I would accept! Than...
+- [01:38 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)](116224969922841857/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116224969922841857
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump)
+- [01:38 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Iran had plans of taking ...](116224969784331828/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116224969784331828
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Iran had plans of taking over the entire Middle East, and completely obliterating Israel. JUST LIKE IRAN ITSELF, TH...
+- [01:38 UTC - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Moments ago, at my direct...](116224969438347868/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116224969438347868
+  - RT [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) Moments ago, at my direction, the United States Central Command executed one of the most powerful bombing raids in...
+- [01:27 UTC - RT [@ jmclghln](https://truthsocial.com/@jmclghln) Strong Majority backs [@ realDonaldTrum...](116224927432061954/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116224927432061954
+  - RT [@ jmclghln](https://truthsocial.com/@jmclghln) Strong Majority backs [@ realDonaldTrump](https://truthsocial.com/@realDonaldTrump) stopping Iran from getting Nukes [https://www...
+- [01:22 UTC - Truth Social post 116224905719469197](116224905719469197/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116224905719469197
+  - _No text content captured._
+- [00:26 UTC - Truth Social post 116224689141094171](116224689141094171/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116224689141094171
+  - _No text content captured._
+- [00:24 UTC - Truth Social post 116224678781425626](116224678781425626/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116224678781425626
+  - _No text content captured._
+- [00:24 UTC - Truth Social post 116224677710108561](116224677710108561/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116224677710108561
+  - _No text content captured._
+- [00:15 UTC - Truth Social post 116224645615624276](116224645615624276/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116224645615624276
+  - _No text content captured._
+- [00:12 UTC - Kevin Hern, from the Wonderful State of Oklahoma (where I won all 77 out of 77 Counties, i...](116224634088762061/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116224634088762061
+  - Kevin Hern, from the Wonderful State of Oklahoma (where I won all 77 out of 77 Counties, in 2016, 2020, and 2024!), is a Great Patriot, and FANTASTIC Congressman! A true friend of...
+- [00:12 UTC - Trump Investment Surge: Trillions Pour Into America As Economic Revival Accelerates: [http...](116224631824988888/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116224631824988888
+  - Trump Investment Surge: Trillions Pour Into America As Economic Revival Accelerates: [https:// thenevadaglobe.com/articles/tr ump-investment-surge-trillions-pour-into-america-as-ec...
+- [00:12 UTC - US Olympic bobsledder surprises Trump, awards him prestigious Order of Ikkos medal: [https...](116224630912933489/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116224630912933489
+  - US Olympic bobsledder surprises Trump, awards him prestigious Order of Ikkos medal: [https:// nypost.com/2026/03/12/us-news/ trump-awarded-prestigious-order-of-ikkos-medal-by-us-ol...
+- [00:11 UTC - Trump honors Virginia mom, farmer at White House Women's History Month event: [https:// wj...](116224629259359835/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116224629259359835
+  - Trump honors Virginia mom, farmer at White House Women's History Month event: [https:// wjla.com/news/local/president- donald-trump-honors-virginia-mom-farmer-white-house-womens-hi...
+- [00:11 UTC - Baltimore woman honored by President Trump during Women’s History Month: [https://www. wba...](116224627869912229/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116224627869912229
+  - Baltimore woman honored by President Trump during Women’s History Month: [https://www. wbal.com/baltimore-woman-honor ed-by-president-trump-during-womens-history-month](https://www...

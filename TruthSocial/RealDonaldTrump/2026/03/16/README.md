@@ -1,6 +1,6 @@
 # TruthSocial / RealDonaldTrump / 2026-03-16
 
-- Posts: 14
+- Posts: 17
 
 - [23:58 UTC - Prez Trump Draws Massive Crowd Reaction At CFP Title Game In Miami: [https://www. outkick....](116241562639922898/)
   - Source: https://truthsocial.com/@realDonaldTrump/116241562639922898
@@ -44,3 +44,12 @@
 - [03:59 UTC - Truth Social post 116236850873003597](116236850873003597/)
   - Source: https://truthsocial.com/@realDonaldTrump/116236850873003597
   - _No text content captured._
+- [02:46 UTC - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116236559151421767 The Courts t...](116236561191626050/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116236561191626050
+  - RT: https://truthsocial.com/users/realDonaldTrump/statuses/116236559151421767 The Courts treat Republicans, and me, so unfairly, always seeming to protect those who should not be p...
+- [02:45 UTC - The decision that mattered most to me was TARIFFS! The Court knew where I stood, how badly...](116236559151421767/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116236559151421767
+  - The decision that mattered most to me was TARIFFS! The Court knew where I stood, how badly I wanted this Victory for our Country, and instead decided to, potentially, give away Tri...
+- [02:30 UTC - Mark Levin, a truly Great American Patriot, is somewhat under siege by other people with f...](116236498017197393/)
+  - Source: https://truthsocial.com/@realDonaldTrump/116236498017197393
+  - Mark Levin, a truly Great American Patriot, is somewhat under siege by other people with far less Intellect, Capability, and Love for our Country. Mark is Tough, Strong, and Brilli...
